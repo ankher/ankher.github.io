@@ -1,0 +1,12 @@
+<ul>
+	{% for post in include.posts %}
+	<li>
+		{% if post.url == page.url %}
+		{{ post.title }}
+		{% else %}
+		<a href="{{ post.url | relative_url }}">{{ post.title }}</a>
+		{% endif %}
+		<div class="date">{% include dd.liq post=post %}</div>
+	</li>
+	{% endfor %}
+</ul>

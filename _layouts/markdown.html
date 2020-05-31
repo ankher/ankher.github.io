@@ -1,0 +1,19 @@
+{% include before.html %}
+	<div id="main" class="flex-child-grow">
+		{% if page.image %}
+		<section class="hero full-height" style="background-image: url({{ page.image }})">
+			{% if page.title %}
+			<div class="row column">
+				<h1>{{ page.title }}</h1>
+			</div>
+			{% endif %}
+		</section>
+		{% endif %}
+		
+		<section class="row">
+            <div class="column small-12 medium-12 large-12">
+                {{ content }}
+            </div>
+		</section>
+	</div>
+{% include after.html %}

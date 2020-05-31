@@ -1,0 +1,37 @@
+---
+layout: site
+menu: Blog
+---
+{% if page.image %}
+<section class="hero full-height" style="background-image: url({{ page.image }})">
+	<div class="row column">
+{% else %}
+<section class="row">
+	<div class="column">
+{% endif %}
+		<h1>{{ page.title }}</h1>
+{% if page.date %} 
+		<div class="blog date">{% include dd.liq post=page %}</div>
+{% endif %}
+	</div>
+</section>
+		
+<section class="blog">
+	<div class="row">
+		<div class="column small-12 medium-7 large-8">
+			{{ content }}
+		
+			{% include post_tags.html tags=page.tags %}		
+		</div>
+		
+		<div class="column small-12 medium-5 large-4">
+{% unless page.tag %}
+			<h1>Archief</h1>
+			{% include post_index.html posts=site.posts %}
+{% endunless %}
+					
+			<h1>Onderwerpen</h1>
+			{% include tag_cloud.html %}			
+		</div>
+	</div>
+</section>

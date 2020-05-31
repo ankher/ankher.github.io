@@ -1,0 +1,29 @@
+section {
+   	padding: 2em 0em;
+}
+
+.bottom {
+	bottom: 0px;
+}
+
+.chapter {
+	padding: 0.5em 0em;
+}
+
+.hero {
+	position: relative;
+	
+	background: {
+		size: cover;
+		position: center;
+	}
+	
+	color: white;
+	
+	min-height: 40vh;
+	padding-top: 30vh;
+	
+	h1:before {
+      content : none;
+	}
+}

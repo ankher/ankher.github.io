@@ -1,0 +1,48 @@
+<section>
+    <!-- Load Facebook SDK for JavaScript -->
+      <div id="fb-root"></div>
+      <script>
+        window.fbAsyncInit = function() {
+          FB.init({
+            xfbml            : true,
+            version          : 'v6.0'
+          });
+        };
+
+        (function(d, s, id) {
+        var js, fjs = d.getElementsByTagName(s)[0];
+        if (d.getElementById(id)) return;
+        js = d.createElement(s); js.id = id;
+        js.src = 'https://connect.facebook.net/nl_NL/sdk/xfbml.customerchat.js';
+        fjs.parentNode.insertBefore(js, fjs);
+      }(document, 'script', 'facebook-jssdk'));</script>
+
+      <!-- Your customer chat code -->
+      <div class="fb-customerchat"
+        attribution=setup_tool
+        page_id="486835188181046"
+  theme_color="#ff7e29"
+  logged_in_greeting="Hallo! Hoe kan ik je helpen?"
+  logged_out_greeting="Hallo! Hoe kan ik je helpen?">
+      </div>
+    <div class="row column text-center">
+        <p>
+            Manopura<br/>
+            Gentsesteenweg 18<br/>
+            9230 Wetteren<br/>
+            0498/42.40.12<br/>
+            marian@manopura.be<br/>
+            Ondernemingsnummer: 0651.873.949<br/>
+        </p>
+        <p>
+            Het treinstation van Wetteren is vlakbij, op amper 4 minuten wandelen.<br />
+            Er is voldoende parkeerplaats aanwezig in de straat.<br />
+            Let wel op: het is blauwe zone. Dus vergeet je blauwe kaart niet te leggen.
+        </p>
+        <div class="_form_1"></div><script src="https://manopura.activehosted.com/f/embed.php?id=1" type="text/javascript" charset="utf-8"></script>
+        <a style="font-size: 3em; white" href="https://www.facebook.com/manopura"><i class="fa fa-facebook-official" aria-hidden="true"></i></a><br />
+        <a class="button" href="files/manopura.pdf">Download flyer</a>
+        <a class="button" href="images/pagaplooifolder.jpg">Download folder1</a>
+        <a class="button" href="images/pagbplooifolder.jpg">Download folder2</a>
+    </div>
+</section>
