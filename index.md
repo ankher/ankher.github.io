@@ -5,16 +5,25 @@ menu: welkom
 ![logo](images/logo.jpg)
 
 
-# Welkom in de Intuïtieschool Het Ankher!
+# Welkom in De Intuïtieschool Het Ankher!
+
+Hier kom je alles te weten over intuïtie, je eigen intuïtief aanvoelen, je creatieve kracht, ...
+Je leert ze herkennen, erop vertrouwen, verder ontwikkelen, en gebruiken in je dagdagelijks leven.   
+
+Er worden regelmatig opleidingen georganiseerd, workshops, readings/healings,... om je verder te begeleiden. Voor ieder wat wils!
+
+Het logo van De Intuïtieschool en de naam Het Ankher behoeven misschien een beetje duiding:
+Het ankh-teken is een oud Egyptisch symbool dat je overal in tempels en muurschilderingen terug kan vinden. Het staat symbool voor 'levenskracht', 'adem', 
 
 
 
 
 
 
+# Mijn intuïtief pad
 
-# Wie ben ik?
 
+Intuïtie en energie gaan voor mij hand in hand. Als alles goed stroomt, als je energie geen blokkades kent, dan stroomt ook de intuïtie, de bron van informatie over je leven, jouw 'weten'.
 
 
 ![fotofrontwebsitemanopura](images/fotofrontwebsitemanopura.png)
@@ -23,7 +32,7 @@ menu: welkom
 
 
 
-# Voor wie kan Manopura iets betekenen?
+# Voor wie kan de Intuïtieschool iets betekenen?
 
 + voor mensen met steeds terugkerende (lichamelijke) klachten
 + voor mensen die klinisch onderzocht zijn, maar waar geen medische oorzaak voor het ongemak werd gevonden
