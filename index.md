@@ -2,7 +2,7 @@
 layout: markdown
 menu: welkom
 ---
-![logo](images/logo.jpg)
+![logo](images/logo.png)
 
 
 # Welkom in de Intuïtieschool!   
