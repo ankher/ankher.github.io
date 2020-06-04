@@ -5,8 +5,8 @@ menu: welkom
 ![logo](images/logo.png)
 
 
-# Welkom in de Intuïtieschool!   
-# Welkom in Het Ankher!
+# Welkom!  
+
 
 Hier kom je alles te weten over intuïtie, je eigen intuïtief aanvoelen, je creatieve kracht, ...
 Je leert ze (her)kennen, erop vertrouwen, verder ontwikkelen, en gebruiken in je dagdagelijks leven.   
