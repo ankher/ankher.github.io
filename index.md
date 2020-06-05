@@ -40,7 +40,7 @@ Intuïtie en ontspanning horen ook bij elkaar. Je hebt maar oor voor je buikgevo
 
 Intuïtie leer je het beste verkennen spelenderwijs. Als een nieuwsgierig en enthousiast kind dat voor het eerst een nieuw speelgoedje ontdekt! Dat is ook de manier waarop ik het jou wil laten ervaren.
 
-Ik ben heel blij met deze gang van zaken, het liep zoals het moest lopen, voor mij. En al mijn ervaring deel ik graag met jou, zodat ook jij kan genieten van jouw ontdekkingstocht!
+Ik ben heel blij met deze gang van zaken; het liep zoals het moest lopen, voor mij. En al mijn ervaring deel ik graag met jou, zodat ook jij kan genieten van jouw ontdekkingstocht en verdere ontplooiing!
 
 
 ![fotofrontwebsitemanopura](images/foto_mezelf.png)
