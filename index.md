@@ -5,7 +5,7 @@ menu: welkom
 ![logo](images/logo.png)
 
 
-# Welkom!  
+# **Welkom!**  
 
 
 Hier kom je alles te weten over intuïtie, je eigen intuïtief aanvoelen, je creatieve kracht, ...
