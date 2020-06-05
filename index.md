@@ -41,7 +41,7 @@ Intuïtie en ontspanning horen ook bij elkaar. Je hebt maar oor voor je buikgevo
 Ik ben heel blij met deze gang van zaken, het liep zoals het moest lopen, voor mij. En al mijn ervaring deel ik graag met jou, zodat ook jij kan genieten van jouw ontdekkingstocht!
 
 
-![fotofrontwebsitemanopura](images/fotofrontwebsitemanopura.png)
+![fotofrontwebsitemanopura](images/foto_mezelf.jpg)
 
 # Missie  
 Het Ankher is een opleidingscentrum waar intuïtie, zelfontwikkeling, groei naar dieper bewustzijn centraal staan. Het wil een tegengewicht bieden aan het huidige opleidingsaanbod waar veelal het accent ligt op mentale processen. Het wil het 'zesde' zintuig terug in het daglicht stellen, op een nuchtere manier.  
