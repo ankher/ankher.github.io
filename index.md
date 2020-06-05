@@ -45,8 +45,16 @@ Ik ben heel blij met deze gang van zaken; het liep zoals het moest lopen, voor m
 
 ![fotofrontwebsitemanopura](images/foto_mezelf.png)
 
+
+
+
+
 # Missie  
 Het Ankher is een opleidingscentrum waar intuïtie, zelfontwikkeling, groei naar dieper bewustzijn centraal staan. Het wil een tegengewicht bieden aan het huidige opleidingsaanbod waar veelal het accent ligt op mentale processen. Het wil het 'zesde' zintuig terug in het daglicht stellen, op een nuchtere manier.  
+
+
+
+
 
 
 # Voor wie kan het Ankher iets betekenen?
