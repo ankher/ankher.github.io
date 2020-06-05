@@ -11,7 +11,7 @@ menu: welkom
 Hier kom je alles te weten over intuïtie, je eigen intuïtief aanvoelen, je creatieve kracht, ...
 Je leert ze (her)kennen, erop vertrouwen, verder ontwikkelen, en gebruiken in je dagdagelijks leven.   
 
-Er worden regelmatig opleidingen georganiseerd, workshops, readings/healings,... om je verder te begeleiden. 
+Er worden regelmatig opleidingen georganiseerd, workshops, readings/healings,... om je hierin te begeleiden. 
 
 Het logo van De Intuïtieschool en de naam Het Ankher behoeven misschien een beetje uitleg:   
 
