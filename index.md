@@ -13,7 +13,7 @@ Je leert ze (her)kennen, erop vertrouwen, verder ontwikkelen, en gebruiken in je
 
 Er worden regelmatig opleidingen georganiseerd, workshops, readings/healings,... om je verder te begeleiden. 
 
-Het logo van De Intuïtieschool en de naam Het Ankher behoeven misschien een beetje duiding:   
+Het logo van De Intuïtieschool en de naam Het Ankher behoeven misschien een beetje uitleg:   
 
 Het **ankh-teken** is een oud Egyptisch symbool dat je overal in tempels en muurschilderingen terug kan vinden. Het staat symbool voor levenskracht, adem, bescherming, de link tussen dit leven en de onsterfelijkheid.   
 
@@ -49,12 +49,14 @@ Het Ankher is een opleidingscentrum waar intuïtie, zelfontwikkeling, groei naar
 
 # Voor wie kan het Ankher iets betekenen?
 
-+ voor mensen op zoek naar diepgang, die intuïtief weten dat er meer is, en daarin begeleiding zoeken
 + voor mensen die merken dat ze een 'gave' hebben maar daar verder niets over weten en het willen verkennen
 + voor mensen die goed kunnen aanvoelen
-+ voor mensen die bereid zijn aan zichzelf te willen werken
 + hoogsensitieve mensen (HSP)
 + voor vrouwen die door omstandigheden (werk of privé) zeer mentaal geworden zijn, en terug connectie willen maken met hun aangeboren intuïtie en aanvoelen.
++ voor mensen die bereid zijn aan zichzelf te willen werken
++ voor mensen op zoek naar diepgang, die intuïtief weten dat er meer is, en daarin begeleiding zoeken
+
+
 
 
 
