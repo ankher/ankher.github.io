@@ -23,7 +23,7 @@ Als je eens niet kan volgen, kan je die les apart later inpikken wanneer de seri
 
 Start opnieuw in september 2020. Check Facebook voor de laatste updates!   
 Je kan kiezen om de lessen life of online te volgen.   
-10€ per les.    
+10€ per les./ 100€ voor het deel van 10 lessen.    
 
 **DEEL 2: HART**   
 
@@ -36,7 +36,7 @@ Als je eens niet kan volgen, kan je die les apart later inpikken wanneer de seri
 
 Start opnieuw in september 2020. Check Facebook voor de laatste updates!   
 Je kan kiezen om de lessen life of online te volgen.   
-10€ per les.    
+10€ per les./ 100€ voor het deel van 10 lessen.       
 
 
 
