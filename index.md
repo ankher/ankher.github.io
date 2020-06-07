@@ -13,15 +13,13 @@ Je leert ze (her)kennen, erop vertrouwen, verder ontwikkelen, en gebruiken in je
 
 Er worden regelmatig opleidingen georganiseerd, workshops, readings/healings,... om je hierin te begeleiden. 
 
-Het logo van De Intuïtieschool en de naam Het Ankher behoeven misschien een beetje uitleg:   
-
-Het **ankh-teken** is een oud Egyptisch symbool dat je overal in tempels en muurschilderingen terug kan vinden. Het staat symbool voor levenskracht, adem, bescherming, de link tussen dit leven en de onsterfelijkheid.   
+Het **ankh-teken** in het logo is een oud Egyptisch symbool dat je overal in tempels en muurschilderingen terug kan vinden. Het staat symbool voor levenskracht, adem, bescherming, de link tussen dit leven en de onsterfelijkheid.   
 
 Het **anker** op zich staat symbool voor stabiliteit, zekerheid, verankerd zijn, stevige basis.   
 
 Je zou er tevens ook een maansikkel kunnen in zien; de **maan** als symbool voor vrouwelijkheid, vrouwelijke kracht, krachtbron voor zelfreflectie.   
 
-Al deze symbolen samen zorgen ervoor dat de klemtoon in de Intuïtieschool Het Ankher ligt op het groeien in bewustzijn van wie jij werkelijk bent, in het licht van jouw levenskracht en goddelijke inspiratie. 
+Al deze symbolen samen zorgen ervoor dat de klemtoon in de Intuïtieschool Het Ankher ligt op het groeien in bewustzijn van wie jij werkelijk bent, in het licht van jouw levenskracht en goddelijke inspiratie/ intuïtie. 
 Dat vormt een solide basis met stevige fundamenten, van waaruit jij ten volle in jouw kracht kan staan en het leven leiden dat bij jou past. 
 
 
