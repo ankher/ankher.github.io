@@ -4,45 +4,39 @@ menu: cursussen
 ---
 # Cursussen
 
-**KOM TOT RUST** sessies      
-KOM TOT RUST - LIGHT VERSION   
-- specifiek voor wie last heeft met onrust, angst, onzekerheid tijdens deze covid-19 uitbraak   
-- lichaamsoefeningen en geestelijke oefeningen om de rust te leren opzoeken en bewaren   
-- inzicht verkrijgen waar bij jou het ongemak precies vandaan komt   
-- persoonlijke begeleiding   
-- online, elke maandagavond 19-20u   
-- 10 euro per les; 10 beurtenkaart aan 95 euro   
-- 10 weken (laatste les 8 juni 2020)    
-*Als er veel vraag of nood aan is, kan ik dit gedeelte nogmaals aanbieden tijdens de zomermaanden. Laat het me weten!*
+**LEER JE LEEG MAKEN**       
 
-KOM TOT RUST - FULL VERSION      
-- werkt dieper door, op 3 niveaus: hoofd, hart, hara (=buik)     
-- 10 lessen rond mentale onrust, 10 lessen rond emotionele onrust, 10 lessen rond het leren vertrouwen op intuitie en het (her)ontdekken van je eigen creatieve kracht   
-- online of face2face
-- start bij elk nieuw schooljaar; nieuwe reeks voorzien vanaf september 2020
-- elke woensdagavond 20-21u, behalve tijdens schoolvakanties   
-- 10 euro per les; 10 beurtenkaart aan 95 euro  
-- 30 weken, jaartraject   
+Deze cursus bestaat uit 2 delen: HOOFD en HART.
+Je komt pas tot het herkennen van de stem van je intuïtie, als je aangeleerd hebt dat er daarnaast nog 2 stemmen zijn die je het knap lastig kunnen maken: die van je hoofd (ego) en die van het hart (emo).
 
+**DEEL 1: HOOFD**    
 
-**BOOST JE IMMUUNSYSTEEM**   
-- speciaal gratis aanbod tijdens covid-19 uitbraak   
-- webinar   
-- verschillende inzichten, tips en lichaamsoefeningen om je immuniteit te versterken 
-- wordt verschillende keren herhaald: dindagavond 21/4 om 19u; donderdagavond 30/4, 7 mei en 14 mei telkens om 19u.
+Hier wordt specifiek ingezoemd op alles wat je kopzorgen bezorgd. Je leert de brulaap in je hoofd kennen die onophoudelijk gedachten produceert en je bezig houdt, zelfs onrustig maakt of niet laat slapen.   
+Alles wat mentale processen zijn of reacties van het ego worden onder de loep genomen.   
+Zo leer je beter begrijpen hoe die denkprocessen verlopen en hoe je ze tot bedaren kan brengen, zodat je meer ruimte en rust in je hoofd kan ervaren en openkomt voor de leegte waar de intuïtie te horen is.    
+Want wees maar zeker dat je ego je vaak onderuit wil halen in twijfels en alles zal platredeneren wat je eventueel intuïtief aanvoelt.   
 
+Praktisch: 10 lessen van 1 uur.    
+Telkens met een theoretisch en praktisch gedeelte.    
+Deze 10 lessen vormen 1 geheel. Het wordt aangeraden ze allemaal te volgen, want de inhoud bouwt telkens verder.   
+Als je eens niet kan volgen, kan je die les apart later inpikken wanneer de serie herhaald wordt.   
 
-**VERSTERK JE GEZONDHEID**   
-- gaat verder en dieper door dan het gratis webinar   
-- een goede gezondheid is van kapitaal belang, en je kan er zelf heel veel aan doen!   
-- je zorgt dat je degelijk gewapend bent tegen ziekte-aanvallen
-- niet alleen inzichten en oefeningen voor het immuunsysteem, maar voor de algehele gezondheid   
-- mix van theorie met praktische lichaamsoefeningen
-- gebaseerd op de Oosterse 5 elementen leer en shiatsu principes  
-- vele bruikbare tips en handige oefeningen   
-- face2face: 6 zaterdagen; start vanaf september 2020; 1 zaterdag per maand: 26/9, 24/10, 21/11, 12/12, 23/1/21, 20/2/21; 780 euro voor het pakket van 6 lessen; 150 euro per losse lesdag.   
-- online: 12 dinsdagavonden 19-21u30; start vanaf 8 september 2020; elke 2 weken; 600 euro voor het pakket van 12 lessen; 60 euro per losse les. Data: 8/9, 22/9, 6/10, 20/10, 10/11, 24/11, 8/12, 22/12, 12/1/21, 26/1/21, 9/2/21, 23/2/21   
+Start opnieuw in september 2020. Check Facebook voor de laatste updates!   
+Je kan kiezen om de lessen life of online te volgen.   
+10€ per les.    
 
+**DEEL 2: HART**   
+
+Hier wordt specifiek ingezoemd op alles wat je aan emoties belet om tot leegte, stilte te komen. Vaak is angst (vanuit het ego) de boosdoener waardoor je niet verder durft te gaan. Je kan het vergelijken met een kind dat vraagt de slaapkamerdeur open te laten en het licht in de gang te laten branden, uit schrik voor het donker van de nacht. Je leert aan dit te herkennen en wanneer emoties opkomen, om ze te verzachten zodat ze je niet gaan overmeesteren.    
+
+Praktisch: 10 lessen van 1 uur.    
+Telkens met een theoretisch en praktisch gedeelte.    
+Deze 10 lessen vormen 1 geheel. Het wordt aangeraden ze allemaal te volgen, want de inhoud bouwt telkens verder.   
+Als je eens niet kan volgen, kan je die les apart later inpikken wanneer de serie herhaald wordt.   
+
+Start opnieuw in september 2020. Check Facebook voor de laatste updates!   
+Je kan kiezen om de lessen life of online te volgen.   
+10€ per les.    
 
 
 
