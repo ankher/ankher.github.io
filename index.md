@@ -31,7 +31,9 @@ Dat vormt een solide basis met stevige fundamenten, van waaruit jij ten volle in
 # Mijn intuïtief pad
 
 
-Mijn pad in die zin was hobbelig. Ik herinner me dat ik als 5 jarige zat te spelen met zelfgemaakte pendels. Tijdens mijn puberteit heb ik zowat alle boeken uit de bibliotheek gelezen over para-normale zaken. Voor mij voelde het zeer vertrouwd; maar het gevoel was dubbel, er zat ook veel angst bij. Angst voor het onbekende, het onverklaarbare. En daarom hield ik dat potje dicht. Maar als het je pad is, krijg je zo nu en dan een por. En als die por niet duidelijk genoeg was, komt er nog 1 en nog 1. Tot het groter moet, een hamer. Figuurlijk. Rond mijn 35e had ik eindelijk begrepen dat ik er wat mee aan moest, met mijn intuïtie. Maar wat? en daar begon mijn ontdekkingstocht! Ik heb het hele spectrum aan opleidingen doorploegd, van de meest zweverige tot de meest aardse, omdat ik goed wilde inschatten hoe je intuïtie als deel van je leven maakt. 
+Mijn pad in die zin was hobbelig. Ik herinner me dat ik als 5 jarige zat te spelen met zelfgemaakte pendels. Tijdens mijn puberteit heb ik zowat alle boeken uit de bibliotheek gelezen over para-normale zaken. Voor mij voelde het zeer vertrouwd; maar het gevoel was dubbel, er zat ook veel angst bij. Angst voor het onbekende, het onverklaarbare. En daarom hield ik dat potje dicht.    
+
+Maar als het je pad is, krijg je zo nu en dan een por. En als die por niet duidelijk genoeg was, komt er nog 1 en nog 1. Tot het groter moet, een hamer. Figuurlijk. Rond mijn 35e had ik eindelijk begrepen dat ik er wat mee aan moest, met mijn intuïtie. Maar wat? en daar begon mijn ontdekkingstocht! Ik heb het hele spectrum aan opleidingen doorploegd, van de meest zweverige tot de meest aardse, omdat ik goed wilde inschatten hoe je intuïtie als deel van je leven maakt. 
 
 Intuïtie en energie gaan voor mij hand in hand. Als alles goed stroomt, als je energie geen blokkades kent, dan stroomt ook de intuïtie, de bron van informatie over je leven, jouw 'weten'. 
 Intuïtie en ontspanning horen ook bij elkaar. Je hebt maar oor voor je buikgevoel als je geen overmatige stress te verwerken hebt of vol zit met kopzorgen.
