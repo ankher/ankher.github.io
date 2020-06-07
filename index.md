@@ -9,7 +9,7 @@ menu: welkom
 
 
 Hier kom je alles te weten over intuïtie, je eigen intuïtief aanvoelen, je creatieve kracht, ...
-Je leert ze (her)kennen, erop vertrouwen, verder ontwikkelen, en gebruiken in je dagdagelijks leven.   
+Je leert het (her)kennen, erop vertrouwen, verder ontwikkelen, en gebruiken in je dagdagelijks leven.   
 
 Er worden regelmatig opleidingen georganiseerd, workshops, readings/healings,... om je hierin te begeleiden. 
 
