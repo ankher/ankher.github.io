@@ -8,7 +8,7 @@ menu: welkom
 # **Welkom!**  
 
 
-Hier kom je alles te weten over intuïtie, je eigen intuïtief aanvoelen, je creatieve kracht, ...
+Hier kom je alles te weten over intuïtie, je eigen intuïtief aanvoelen, je creatieve kracht, bewustwording...
 Je leert het (her)kennen, erop vertrouwen, verder ontwikkelen, en gebruiken in je dagdagelijks leven.   
 
 Er worden regelmatig opleidingen georganiseerd, workshops, readings/healings,... om je hierin te begeleiden. 
@@ -20,7 +20,9 @@ Het **anker** op zich staat symbool voor stabiliteit, zekerheid, verankerd zijn,
 Je zou er tevens ook een maansikkel kunnen in zien; de **maan** als symbool voor vrouwelijkheid, vrouwelijke kracht, krachtbron voor zelfreflectie.   
 
 Al deze symbolen samen zorgen ervoor dat de klemtoon in de Intuïtieschool Het Ankher ligt op het groeien in bewustzijn van wie jij werkelijk bent, in het licht van jouw levenskracht en goddelijke inspiratie/ intuïtie. 
-Dat vormt een solide basis met stevige fundamenten, van waaruit jij ten volle in jouw kracht kan staan en het leven leiden dat bij jou past. 
+Dat vormt een solide basis met stevige fundamenten, van waaruit jij ten volle in jouw kracht kan staan, jouw leven ontdekken!
+
+De wereld heeft nood aan meer diepgang, meer bewustzijn. De graai- en wegwerpcultuur, de verregaande virtualisering e.d. zijn oppervlakkige levensvormen die meer kwaad doen dan goed. De mens vervreemt van zijn eigen natuur. Het Ankher wil met cursussen en workshops meer inzicht brengen, en het besef wakker maken dat ieder mens beschikt over een enorme bron aan innerlijke intelligentie, intuïtie, zelfhelend vermogen, bewustzijn.  
 
 
 
