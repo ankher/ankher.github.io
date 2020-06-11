@@ -30,7 +30,7 @@ Je kan kiezen om de lessen life of online te volgen.
 
 Dit gedeelte kan je pas volgen, wanneer je de 10 lessen van Deel 1 afgewerkt hebt.    
 Hier wordt specifiek ingezoemd op alles wat je aan emoties belet om tot leegte, tot stilte te komen. Vaak is angst (vanuit het ego) de boosdoener waardoor je niet verder durft te gaan. Je kan het vergelijken met een kind dat vraagt de slaapkamerdeur open te laten en het licht in de gang te laten branden, uit schrik voor het donker van de nacht. Je leert aan dit te herkennen en wanneer emoties opkomen, om ze te verzachten zodat ze je niet gaan overmeesteren.  
-(*Disclaimer: mensen met psychische kwetsbaarheden vragen beter hulp bij hun psycholoog of psychiater)*
+(*Disclaimer: mensen met psychische kwetsbaarheden vragen beter ondersteuning bij hun psycholoog of psychiater)*
 
 Praktisch: 10 lessen van 1 uur.    
 Telkens met een theoretisch en praktisch gedeelte.    
