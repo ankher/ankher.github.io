@@ -57,6 +57,15 @@ Start opnieuw in maart 2021. Check Facebook voor de laatste updates!
 Je kan kiezen om de lessen life of online te volgen.   
 10€ per les./ 100€ voor het deel van 10 lessen.
 
+---
+
+**REIKI 1 INWIJDINGEN**
+
+---
+
+**ONTWIKKEL LICHAAMSBEWUSTZIJN**
+
+___
 
 
 [**Ja, ik neem deel!**](mailto:marian@manopura.be) aan een cursus! Laat me weten dewelke je precies interesseert, en ik contacteer je voor meer details, link voor webinars, etc! 
