@@ -59,7 +59,7 @@ Je kan kiezen om de lessen life of online te volgen.
 
 ---
 
-**REIKI 1 INWIJDINGEN**
+**REIKI 1 OPLEIDNG & INWIJDINGEN**
 
 ---
 
