@@ -1,6 +1,6 @@
 ---
 layout: markdown
-menu: Reading/Healing
+menu: readinghealing
 ---
 # Reading & Healing
 
