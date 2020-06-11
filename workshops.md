@@ -18,7 +18,7 @@ Een speelse kleurrijke manier om tot dieper bewustzijn te komen!
 **MODERNE SJAMAAN NATUURWANDELING**   
 
 Sjamanen in de geschiedenis van vele verschillende volkeren waren 'zieners' die over een verhoogde graad van bewustzijn beschikten. Je hoeft geen sjamaan in de letterlijke zin van het woord te zijn. Het volstaat om met open geest en veel respect voor het leven en de natuur je te laten leiden door ogenschijnlijke 'toevalligheden'.
-In deze wandeling kan je daar al een stukje van leren kennen. Je leert dat alles wat je tegen komt, een diepere betekenis heeft, voor jou, voor de groep. En vanuit die betekenis krijg je weer meer inzicht in wat er bij je speelt. 
+In deze wandeling kan je daar al een stukje van leren kennen. Je leert dat alles wat je tegen komt een diepere betekenis heeft, voor jou, voor de groep. En vanuit die betekenis krijg je weer meer inzicht in wat er bij je speelt. 
 
 
 ---
