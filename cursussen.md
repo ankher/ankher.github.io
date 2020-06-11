@@ -63,7 +63,7 @@ Je kan kiezen om de lessen life of online te volgen.
 
 ---
 
-**ONTWIKKEL LICHAAMSBEWUSTZIJN**
+**JE LICHAAM ALS KRACHTBRON - ONTWIKKEL LICHAAMSBEWUSTZIJN**
 
 ___
 
