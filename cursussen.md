@@ -6,8 +6,9 @@ menu: cursussen
 
 **LEER JE LEEG MAKEN**       
 
-Deze cursus bestaat uit 2 delen: HOOFD en HART.
-Je komt pas tot het herkennen van de stem van je intuïtie, als je aangeleerd hebt dat er daarnaast nog 2 stemmen zijn die je het knap lastig kunnen maken: die van je hoofd (ego) en die van het hart (emo).
+Deze cursus bestaat uit 3 delen: HOOFD, HART, HARA.
+Je komt pas tot het herkennen van de stem van je intuïtie, als je aangeleerd hebt dat er daarnaast nog 2 stemmen zijn die je het knap lastig kunnen maken: die van je hoofd (ego) en die van het hart (emo).   
+Hara is het Japanse woord voor buik, jouw levenskracht, evenwicht, buikgevoel. 
 
 **DEEL 1: HOOFD**    
 
@@ -35,9 +36,25 @@ Telkens met een theoretisch en praktisch gedeelte.
 Deze 10 lessen vormen 1 geheel. Het wordt aangeraden ze allemaal te volgen, want de inhoud bouwt telkens verder.   
 Als je eens niet kan volgen, kan je die les apart later inpikken wanneer de serie herhaald wordt.   
 
-Start opnieuw in september 2020. Check Facebook voor de laatste updates!   
+Start opnieuw in december 2020. Check Facebook voor de laatste updates!   
 Je kan kiezen om de lessen life of online te volgen.   
-10€ per les./ 100€ voor het deel van 10 lessen.       
+10€ per les./ 100€ voor het deel van 10 lessen.      
+
+**DEEL 3: HARA**
+
+Je start met dit deel als je deel2 heb afgerond.   
+Hier leer je dan aan hoe de stem van het buikgevoel gericht op te zoeken, te raadplegen, te gebruiken. 
+Er worden verschillende oefeningen en manieren aangeboden, zodat je kan verkennen wat bij jou het beste werkt. 
+Verschillende topics worden dieper uitgewerkt en langer ingeoefend tijdens workshops. 
+
+Praktisch: 10 lessen van 1 uur.    
+Telkens met een theoretisch en praktisch gedeelte.    
+Deze 10 lessen vormen 1 geheel. Het wordt aangeraden ze allemaal te volgen, want de inhoud bouwt telkens verder.   
+Als je eens niet kan volgen, kan je die les apart later inpikken wanneer de serie herhaald wordt.   
+
+Start opnieuw in maart 2021. Check Facebook voor de laatste updates!   
+Je kan kiezen om de lessen life of online te volgen.   
+10€ per les./ 100€ voor het deel van 10 lessen.
 
 
 
