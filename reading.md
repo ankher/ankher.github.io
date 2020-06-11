@@ -1,5 +1,5 @@
 ---
 layout: markdown
-menu: Reading-Healing
+menu: Reading/Healing
 ---
 # Reading
