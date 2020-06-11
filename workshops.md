@@ -24,7 +24,7 @@ In deze wandeling kan je daar al een stukje van leren kennen. Je leert dat alles
 ---
 **ONTDEK DE KRACHT VAN DOLMEN EN MENHIRS IN WÉRIS**
 
-Daguitstap
+Daguitstap, provincie Luxemburg
 
 We gaan de mooie natuur rond Durbuy verkennen, maar we laten het toeristische achterwege. We duiken de geschiedenis in en maken kennis met de oude bouwwerken van Wéris, de dolmen en menhirs. Dat waren in die tijd "krachtplekken" van de natuur. Je wordt uitgenodigd je mee open te stellen voor die energie en te kijken wat het met je doet. Het zijn uitstekende plekken om diepgaandere meditaties te doen. 
 
