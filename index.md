@@ -52,7 +52,7 @@ Ik ben heel blij met deze gang van zaken; het liep zoals het moest lopen, voor m
 
 
 # Missie  
-Het Ankher is een opleidingscentrum waar intuïtie, zelfontwikkeling, groei naar dieper bewustzijn centraal staan. Het wil een tegengewicht bieden aan het huidige opleidingsaanbod waar veelal het accent ligt op mentale processen. Het wil het 'zesde' zintuig terug in het daglicht stellen, op een nuchtere manier.  
+Het Ankher is een opleidingscentrum waar intuïtie, zelfontwikkeling, groei naar dieper bewustzijn centraal staan. Het wil een tegengewicht bieden aan het huidige opleidingsaanbod waar veelal het accent ligt op mentale processen. Het 'ego', het rationeel denken slaat door in proportie, terwijl het 'aanvoelen', het 'buikgevoel' wordt weggelachen. Het Ankher wil het 'zesde' zintuig terug in het daglicht stellen, op een nuchtere manier.  
 
 
 
