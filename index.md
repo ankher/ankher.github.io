@@ -35,12 +35,12 @@ De wereld heeft nood aan meer diepgang, meer bewustzijn. De graai- en wegwerpcul
 
 Mijn pad in die zin was hobbelig. Ik herinner me dat ik als 5 jarige zat te spelen met zelfgemaakte pendels. Tijdens mijn puberteit heb ik zowat alle boeken uit de bibliotheek gelezen over para-normale zaken. Voor mij voelde het zeer vertrouwd; maar het gevoel was dubbel, er zat ook veel angst bij. Angst voor het onbekende, het onverklaarbare. En daarom hield ik dat potje dicht.    
 
-Maar als het je pad is, krijg je zo nu en dan een por. En als die por niet duidelijk genoeg was, komt er nog 1 en nog 1. Tot het groter moet, een hamer. Figuurlijk. Rond mijn 35e had ik eindelijk begrepen dat ik er wat mee aan moest, met mijn intuïtie. Maar wat? en daar begon mijn ontdekkingstocht! Ik heb het hele spectrum aan opleidingen doorploegd, van de meest zweverige tot de meest aardse, omdat ik goed wilde inschatten hoe je intuïtie als deel van je leven maakt. 
+Maar als het je pad is, krijg je zo nu en dan een por. En als die por niet duidelijk genoeg was, komt er nog 1 en nog 1. Tot het groter moet, een hamer. Figuurlijk. Rond mijn 35e had ik eindelijk begrepen dat ik er wat mee aan moest, met mijn intuïtie. Maar wat? en daar begon mijn ontdekkingstocht! Ik heb het hele spectrum aan opleidingen doorploegd, van de meest zweverige tot de meest aardse, omdat ik grondig te werk wilde gaan, om mij een zo duidelijk mogelijk beeld te vormen van wat er allemaal mogelijk is, en hoe ik het in mijn leven verder kon verweven. 
 
 Intuïtie en energie gaan voor mij hand in hand. Als alles goed stroomt, als je energie geen blokkades kent, dan stroomt ook de intuïtie, de bron van informatie over je leven, jouw 'weten'. 
 Intuïtie en ontspanning horen ook bij elkaar. Je hebt maar oor voor je buikgevoel als je geen overmatige stress te verwerken hebt of vol zit met kopzorgen.
 
-Intuïtie leer je het beste verkennen spelenderwijs. Als een nieuwsgierig en enthousiast kind dat voor het eerst een nieuw speelgoedje ontdekt! Dat is ook de manier waarop ik het jou wil laten ervaren.
+Intuïtie leer je het beste verkennen spelenderwijs. Dat is altijd mijn insteek geweest. Als een nieuwsgierig en enthousiast kind dat voor het eerst een nieuw speelgoedje ontdekt! Dat is ook de manier waarop ik het jou wil laten ervaren.
 
 Ik ben heel blij met deze gang van zaken; het liep zoals het moest lopen, voor mij. En al mijn ervaring deel ik graag met jou, zodat ook jij kan genieten van jouw ontdekkingstocht en verdere ontplooiing!
 
