@@ -45,7 +45,7 @@ Intuïtie leer je het beste verkennen spelenderwijs. Dat is altijd mijn insteek 
 Ik ben heel blij met deze gang van zaken; het liep zoals het moest lopen, voor mij. En al mijn ervaring deel ik graag met jou, zodat ook jij kan genieten van jouw ontdekkingstocht en verdere ontplooiing!
 
 
-![fotofrontwebsitemanopura](images/foto_mezelf.png)
+![fotofrontwebsitemanopura](images/foto_mezelf_paars.png)
 
 
 
