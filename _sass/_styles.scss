@@ -59,3 +59,11 @@ h5 {
 hr {
 	border-bottom-color: $color-text;
 }
+
+a {
+  color: $color-link;
+
+  &:hover {
+    color: $color-link-hover;
+  }
+}
