@@ -5,7 +5,7 @@ menu: welkom
 ![logo](images/logo.png)
 
 
-# **Welkom!**  
+# **I am the master of my fate, I am the captain of my soul - W.Henley**  
 
 
 Hier kom je alles te weten over intuïtie, je eigen intuïtief aanvoelen, je creatieve kracht, bewustwording...
