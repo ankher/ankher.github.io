@@ -5,7 +5,7 @@ menu: welkom
 ![logo](images/logo.png)
 
 
-<text-align: center>**I am the master of my fate, I am the captain of my soul - W.Henley**  
+### **I am the master of my fate, I am the captain of my soul - W.Henley**  
 
 
 Welkom bij Het Ankher! Hier kom je alles te weten over intuïtie, diepgang, je eigen intuïtief aanvoelen, je creatieve kracht, bewustwording...
