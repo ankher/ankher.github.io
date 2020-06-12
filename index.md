@@ -22,7 +22,7 @@ Je zou er tevens ook een maansikkel kunnen in zien; de **maan** als symbool voor
 Al deze symbolen samen zorgen ervoor dat de klemtoon in de Intuïtieschool Het Ankher ligt op het groeien in bewustzijn van wie jij werkelijk bent, in het licht van jouw levenskracht en goddelijke inspiratie/ intuïtie. 
 Dat vormt een solide basis met stevige fundamenten, van waaruit jij ten volle in jouw kracht kan staan, jouw leven ontdekken!
 
-De wereld heeft nood aan meer diepgang, meer bewustzijn. De graai- en wegwerpcultuur, de verregaande virtualisering e.d. zijn oppervlakkige levensvormen. De mens vervreemt van zijn eigen natuur. Veel mensen beginnen te merken dat het zo niet meer klopt. Maar wat mankeert er dan? Het Ankher wil met cursussen en workshops meer inzicht brengen, en het besef wakker maken dat ieder mens beschikt over een enorme bron aan innerlijke intelligentie, intuïtie, zelfhelend vermogen, bewustzijn.  
+De wereld heeft nood aan meer diepgang, meer bewustzijn. De graai- en wegwerpcultuur, de verregaande virtualisering e.d. zijn oppervlakkige levensvormen. De mens vervreemt van zijn eigen natuur. Veel mensen beginnen te merken dat het zo niet meer klopt. Maar wat mankeert er dan? Het Ankher wil met cursussen en workshops meer inzicht brengen, en het besef wakker maken dat ieder mens beschikt over een enorme bron aan innerlijke intelligentie, intuïtie, zelfhelend vermogen, bewustzijn. Dat helpt om een leven te leiden dat 'zin' heeft, dat vervult met een wezenlijk goed gevoel.   
 
 
 
