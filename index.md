@@ -5,7 +5,7 @@ menu: welkom
 ![logo](images/logo.png)
 
 
-### <span align="center">I am the master of my fate, I am the captain of my soul - W.Henley </span> 
+### I am the master of my fate, I am the captain of my soul - W.Henley 
 
 
 
