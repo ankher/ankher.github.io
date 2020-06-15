@@ -4,18 +4,20 @@ menu: etherische_olie
 ---
 # 't Winkelhoekje
 
+Ik bied een beperkt aantal zaken te koop aan, waarvan ik vind dat ze veel waarde hebben. Enerzijds in de ondersteuning van je energie en goed gevoel, anderzijds in het helpen van je persoonlijk ontwikkeling; ik gebruik de producten ook allemaal zelf in de praktijk, voor mezelf, voor klanten. 
+
 Je kan een aantal **etherische oliën** kopen, om eventueel te verdampen of in het badwater te doen, of te mengen bij een andere neutrale olie.
 
-Deze oliën worden bij Manopura zelf ook gebruikt, als aroma ondersteuning bij de behandeling.
+Deze oliën worden tijdens je persoonlijke consultatie zelf ook gebruikt, als extra aroma ondersteuning.
 
-Ook **wierook**, geur Den en Sandelhout, is te verkrijgen.   
+Van **wierook**, zijn enkel de geur Den en Sandelhout te verkrijgen. Deze 2 geuren zijn de meest pure en natuurlijke.
 Deze wierook wordt vooral ingezet bij Feng Shui correcties.
 
-**Witte salie** is zeer goed om je eigen energie en die van je huis mee te zuiveren, wanneer je je moe of leeg voelt.
+**Witte salie** is zeer goed om je eigen energie en die van je huis mee te zuiveren, wanneer je je moe of leeg voelt, wanneer je energieën van anderen hebt overgenomen, of wanneer negatieve energieën zich in jouw veld hebben vastgezet.
 
 Er zijn verschillende wierook**houders** en olie**branders** voor handen.
 
-**Minerale gesteenten** helpen tijdens meditatie, of ondersteunen verder je energie op verschillende niveaus.
+**Minerale gesteenten** helpen tijdens meditatie, of ondersteunen verder je energie op verschillende niveaus, o.a. bij chakra healing.
 
 
 ![etherische_olie](images/kleinolierekje.png)  
