@@ -5,7 +5,7 @@ menu: welkom
 ![logo](images/logo.png)
 
 
-### **I am the master of my fate, I am the captain of my soul - W.Henley **
+### "I am the master of my fate, I am the captain of my soul" - W.Henley
 
 ---
 
@@ -17,7 +17,7 @@ Er worden regelmatig opleidingen georganiseerd, workshops, readings/healings,...
 
 Het **ankh-teken** in het logo is een oud Egyptisch symbool dat je overal in tempels en muurschilderingen terug kan vinden. Het staat symbool voor levenskracht, adem, bescherming, de link tussen dit leven en de onsterfelijkheid.   
 
-Het **anker** op zich staat symbool voor stabiliteit, zekerheid, verankerd zijn, stevige basis.   
+Het **anker** staat symbool voor stabiliteit, zekerheid, verankerd zijn, stevige basis.   
 
 Je zou er tevens ook een maansikkel kunnen in zien; de **maan** als symbool voor vrouwelijkheid, vrouwelijke kracht, krachtbron voor zelfreflectie.   
 
