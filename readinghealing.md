@@ -10,7 +10,7 @@ Bij wijze van persoonlijk consult, kan je ook kiezen voor een reading of healing
 
 Je wil graag te weten komen waar je precies vast zit in de evolutie van je leven. Of je wil meer informatie over welke richting je uit wil. Of je zit met bepaalde problemen waar je klaarder wil in zien. Of je wil gewoon eens kijken wat je verder kan helpen als tips of weetjes. 
 
-Bij een reading lees ik in het grotere energetische veld, soms in de Akasha kronieken, soms volgens oude sjamaan methoden. Het ogenblik zelf beslist welke methode de beste is voor jou op dat moment. 
+Bij een reading lees ik in het grotere energetische veld, soms in de Akasha kronieken, soms volgens oude sjamaan methoden, soms via pendelen. Het ogenblik zelf beslist welke methode de beste is voor jou op dat moment. 
 
 Je krijgt de verkregen informatie mee, zodat je die thuis verder kan laten doorwerken en integreren.
 
