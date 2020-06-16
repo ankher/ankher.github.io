@@ -18,9 +18,11 @@ Er zijn verschillende wierook**houders** en olie**branders** voor handen.
 
 **Minerale gesteenten** helpen tijdens meditatie, of ondersteunen verder je energie op verschillende niveaus, o.a. bij chakra healing.
 
+---
+
+
 Meer uitleg over de oliën en de gesteenten:
 
----
 **Eucalyptus globulus**  
 + geeft meer adem 
 + ontsmet de lucht
