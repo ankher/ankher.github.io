@@ -5,12 +5,13 @@ menu: workshops
 # Workshops
 
 
-**JE LEVEN IN KLEUR**
+**KLEUR JE LEVEN**
 
 In deze workshop mag je lekker kleuren met alles wat voorhanden is: pastelkrijt, stiften, wasco's, kleurpotloden, aquarel potloden,... of breng gerust je eigen gerief mee. 
 De bedoeling van deze workshop is dat je via je tekening zicht krijgt op je eigen binnenwereld. Wat helpt je, wat blokkeert je? Je tekening als richtingaanwijzer van je intuïtie. Ik coach je door je ervaring, en samen met de anderen van de groep creeëren we extra dynamiek en groepsinzicht. 
 Een speelse kleurrijke manier om tot dieper bewustzijn te komen!
 
+![workshops](images/kleurjeleven.png)
 
 ---
 
@@ -22,6 +23,10 @@ In deze wandeling kan je daar al een stukje van leren kennen. Je leert dat alles
 
 De wandeling vindt plaats in de Kalkense Meersen. 
 
+![workshops](images/wandeling.png)
+![workshops](images/wandeling2.png)
+
+
 
 ---
 **ONTDEK DE KRACHT VAN DOLMEN EN MENHIRS IN WÉRIS**
@@ -30,7 +35,8 @@ Daguitstap, provincie Luxemburg
 
 We gaan de mooie natuur rond Durbuy verkennen, maar we laten het toeristische achterwege. We duiken de geschiedenis in en maken kennis met de oude bouwwerken van Wéris, de dolmen en menhirs. Dat waren in die tijd "krachtplekken" van de natuur. Je wordt uitgenodigd je mee open te stellen voor die energie en te kijken wat het met je doet. Het zijn uitstekende plekken om diepgaandere meditaties te doen. 
 
-
+![workshops](images/weris1.png)
+![workshops](images/weris2.png)
 
 
 
