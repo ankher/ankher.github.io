@@ -63,8 +63,14 @@ Je kan kiezen om de lessen life of online te volgen.
 
 Je weet wat Reiki is, en je wil de stap zetten in je eigen lichamelijke, geestelijke en spirituele ontwikkeling. 
 Indien je nog niet precies weet wat Reiki is, volg je best eerst een infosessie. Die worden regelmatig gegeven, check de data op Facebook!     
+
+
 Reiki is het mooiste cadeau dat je jezelf kan schenken als EHBO-zelfhulp en aan je dierbaren. Je leert spelenderwijs wat energie voor jou kan doen, zodat je zelf nooit zonder komt te zitten!   
+
+
 Het geeft je inzicht in de oorzaak van de obstakels waar je tegenaan loopt, het verruimt je blik op alles wat er mogelijks rondom jou speelt, het verdiept je leven.   
+
+
 De opleiding, inwijdingen en oefeningen duren een hele dag, van 10u tot 18u circa. Na deze dag verkrijg je het certificaat van Reiki 1. 
 
 Kostprijs:    
