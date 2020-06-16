@@ -74,7 +74,7 @@ Het geeft je inzicht in de oorzaak van de obstakels waar je tegenaan loopt, het 
 De opleiding, inwijdingen en oefeningen duren een hele dag, van 10u tot 18u circa. Na deze dag verkrijg je het certificaat van Reiki 1. 
 
 Kostprijs:    
-150 euro (syllabus, lunch, thee en versnaperingen, opleiding, inwijding, oefeningen)
+150€ (syllabus, lunch, thee en versnaperingen, opleiding, inwijding, oefeningen)
 
 Check Facebook voor de komende data!
 
