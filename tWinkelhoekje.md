@@ -18,11 +18,6 @@ Er zijn verschillende wierook**houders** en olie**branders** voor handen.
 
 **Minerale gesteenten** helpen tijdens meditatie, of ondersteunen verder je energie op verschillende niveaus, o.a. bij chakra healing.
 
-
-![etherische_olie](images/kleinolierekje.png)  
-![tWinkelhoekje](images/kristallenklein.JPG)
-
-
 Meer uitleg over de oliën en de gesteenten:
 
 ---
@@ -100,4 +95,20 @@ Meer uitleg over de oliën en de gesteenten:
 + helpt hormonen te regelen
 
 
+**Fotogalerij**
+
+![etherische_olie](images/kleinolierekje.png)  
+![tWinkelhoekje](images/kristallenklein.JPG)
+![tWinkelhoekje](images/bloembrander.JPG)
+![tWinkelhoekje](images/branderblad.JPG)
+![tWinkelhoekje](images/hartbrander.JPG)
+![tWinkelhoekje](images/keltischbrander.JPG)
+![tWinkelhoekje](images/keteltje.JPG)
+![tWinkelhoekje](images/lotusbrander.JPG)
+![tWinkelhoekje](images/ohmbrander.JPG)
+![tWinkelhoekje](images/seleniet.JPG)
+![tWinkelhoekje](images/theelichthouder.png)
+![tWinkelhoekje](images/theelichthouder2.JPG)
+![tWinkelhoekje](images/wierook.png)
+![tWinkelhoekje](images/wierookhouder.png)
 
