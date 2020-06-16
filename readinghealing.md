@@ -29,10 +29,10 @@ Wanneer je eerder een vorm van healing wil van een bepaalde energetische blokkad
 
 
 Tarieven:   
-Reiki: 
-60€ - 1 uur  
+Reiki:    
+60€ - 1 uur     
 90€ - 1,5 uur   
 
-Soul Retrieval: 
+Soul Retrieval:    
 120€ - 1,5 tot 2 uur
 
