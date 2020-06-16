@@ -13,7 +13,7 @@ Een speelse kleurrijke manier om tot dieper bewustzijn te komen!
 
 Komende data:    
 zaterdag 11 juli 14u-16u   
-zaterdag 8 augustus 14-16u
+zaterdag 8 augustus 14-16u   
 Kostprijs: 50€
 
 Check telkens wel de Facebook pagina voor het laatste nieuws, updates, e.d.!
@@ -32,8 +32,8 @@ De wandeling vindt plaats in de Kalkense Meersen.
 
 Komende data:    
 zaterdag 25 juli 14u-16u   
-zaterdag 22 augustus 14-16u
-Kostprijs: 25€
+zaterdag 22 augustus 14-16u   
+Kostprijs: 25€   
 
 Check telkens wel de Facebook pagina voor het laatste nieuws, updates, e.d.!
 
@@ -51,10 +51,10 @@ We gaan de mooie natuur rond Durbuy verkennen, maar we laten het toeristische ac
 
 Komende data:    
 vrijdag 17 juli    
-vrijdag 14 augustus
-Kostprijs: 70€
+vrijdag 14 augustus   
+Kostprijs: 70€   
 
-Eigen lunchpakket en drinken meenemen, stapschoenen, kledij volgens het weer.
+Eigen lunchpakket en drinken meenemen, stapschoenen, kledij volgens het weer.   
 
 Check telkens wel de Facebook pagina voor het laatste nieuws, updates, e.d.!
 
