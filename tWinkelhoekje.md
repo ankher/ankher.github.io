@@ -6,11 +6,10 @@ menu: etherische_olie
 
 Ik bied een beperkt aantal zaken te koop aan, waarvan ik vind dat ze veel waarde hebben. Enerzijds in de ondersteuning van je energie en goed gevoel, anderzijds in het helpen van je persoonlijk ontwikkeling; ik gebruik de producten ook allemaal zelf in de praktijk, voor mezelf, voor klanten. 
 
-Je kan een aantal **etherische oliën** kopen, om eventueel te verdampen of in het badwater te doen, of te mengen bij een andere neutrale olie.
-
+Je kan een aantal **etherische oliën** kopen, om eventueel te verdampen of in het badwater te doen, of te mengen bij een andere neutrale olie om zo je lichaam mee in te masseren.
 Deze oliën worden tijdens je persoonlijke consultatie zelf ook gebruikt, als extra aroma ondersteuning.
 
-Van **wierook**, zijn enkel de geur Den en Sandelhout te verkrijgen. Deze 2 geuren zijn de meest pure en natuurlijke.
+Van **wierook** zijn enkel de geur Den en Sandelhout te verkrijgen. Deze 2 geuren zijn de meest pure en natuurlijke.
 Deze wierook wordt vooral ingezet bij Feng Shui correcties.
 
 **Witte salie** is zeer goed om je eigen energie en die van je huis mee te zuiveren, wanneer je je moe of leeg voelt, wanneer je energieën van anderen hebt overgenomen, of wanneer negatieve energieën zich in jouw veld hebben vastgezet.
@@ -90,6 +89,15 @@ Meer uitleg over de oliën en de gesteenten:
 + voor kinderen en pubers brengt het verbinding met zachte liefde en veilig gevoel
 + leert je van jezelf te houden
 + kalmeert en brengt troost
+
+
+**Seleniet**
++ werkt op zonnevlecht en 2e chakra
++ versterkt intuïtie en werking met Engelen
++ versterkt meditatie
++ ontstresst, kalmeert
++ absorbeert emotionele disbalans
++ helpt hormonen te regelen
 
 
 
