@@ -11,6 +11,13 @@ In deze workshop mag je lekker kleuren met alles wat voorhanden is: pastelkrijt,
 De bedoeling van deze workshop is dat je via je tekening zicht krijgt op je eigen binnenwereld. Wat helpt je, wat blokkeert je? Je tekening als richtingaanwijzer van je intuïtie. Ik coach je door je ervaring, en samen met de anderen van de groep creeëren we extra dynamiek en groepsinzicht. 
 Een speelse kleurrijke manier om tot dieper bewustzijn te komen!
 
+Komende data:    
+zaterdag 11 juli 14u-16u   
+zaterdag 8 augustus 14-16u
+Kostprijs: 50€
+
+Check telkens wel de Facebook pagina voor het laatste nieuws, updates, e.d.!
+
 ![workshops](images/kleurjeleven.png)
 
 ---
@@ -23,6 +30,13 @@ In deze wandeling kan je daar al een stukje van leren kennen. Je leert dat alles
 
 De wandeling vindt plaats in de Kalkense Meersen. 
 
+Komende data:    
+zaterdag 25 juli 14u-16u   
+zaterdag 22 augustus 14-16u
+Kostprijs: 25€
+
+Check telkens wel de Facebook pagina voor het laatste nieuws, updates, e.d.!
+
 ![workshops](images/wandeling.png)
 ![workshops](images/wandeling2.png)
 
@@ -34,6 +48,15 @@ De wandeling vindt plaats in de Kalkense Meersen.
 Daguitstap, provincie Luxemburg
 
 We gaan de mooie natuur rond Durbuy verkennen, maar we laten het toeristische achterwege. We duiken de geschiedenis in en maken kennis met de oude bouwwerken van Wéris, de dolmen en menhirs. Dat waren in die tijd "krachtplekken" van de natuur. Je wordt uitgenodigd je mee open te stellen voor die energie en te kijken wat het met je doet. Het zijn uitstekende plekken om diepgaandere meditaties te doen. 
+
+Komende data:    
+vrijdag 17 juli    
+vrijdag 14 augustus
+Kostprijs: 70€
+
+Eigen lunchpakket en drinken meenemen, stapschoenen, kledij volgens het weer.
+
+Check telkens wel de Facebook pagina voor het laatste nieuws, updates, e.d.!
 
 ![workshops](images/weris1.png)
 ![workshops](images/weris2.png)
