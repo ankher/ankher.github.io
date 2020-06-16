@@ -14,6 +14,10 @@ Bij een reading lees ik in het grotere energetische veld, soms in de Akasha kron
 
 Je krijgt de verkregen informatie mee, zodat je die thuis verder kan laten doorwerken en integreren.
 
+Tarieven:    
+30€ - 30 minuten   
+60€ - 1 uur   
+
 
 **HEALING**
 
@@ -22,4 +26,13 @@ Wanneer je eerder een vorm van healing wil van een bepaalde energetische blokkad
 -Reiki- is een zacht energetische behandeling waar de therapeut zijn handen neerlegt op welbepaalde plaatsen op het lichaam die aandacht behoeven. De kracht van de energie zorgt voor het oplossen van de blokkades.
 
 -Soul Retrieval- is een sjamanistische manier om verloren gegane zieledeeltjes terug op te pikken. Je ervaart het alsof 'stukjes van jezelf' terugkeren en je weer meer energie krijgt of inzicht omtrent hetgeen je verder te doen hebt aan ontwikkeling. 
+
+
+Tarieven:   
+Reiki: 
+60€ - 1 uur  
+90€ - 1,5 uur   
+
+Soul Retrieval: 
+120€ - 1,5 tot 2 uur
 
