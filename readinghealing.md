@@ -12,6 +12,8 @@ Je wil graag te weten komen waar je precies vast zit in de evolutie van je leven
 
 Bij een reading lees ik in het grotere energetische veld, soms in de Akasha kronieken, soms volgens oude sjamaan methoden, soms via pendelen. Het ogenblik zelf beslist welke methode de beste is voor jou op dat moment. 
 
+Het kan online of life in de praktijk; jij kiest waar je je het beste bij voelt.
+
 Je krijgt de verkregen informatie mee, zodat je die thuis verder kan laten doorwerken en integreren.
 
 Tarieven:    
