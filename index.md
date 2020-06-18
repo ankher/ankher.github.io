@@ -67,7 +67,7 @@ Het Ankher is een opleidingscentrum waar intuïtie, zelfontwikkeling, groei naar
 + voor mensen die goed kunnen aanvoelen
 + hoogsensitieve mensen (HSP)
 + voor vrouwen die door omstandigheden (werk of privé) zeer mentaal geworden zijn, en terug connectie willen maken met hun aangeboren intuïtie en aanvoelen.
-+ voor mensen die bereid zijn aan zichzelf te willen werken
++ voor mensen die graag meer te weten komen over intuïtie, heldervoelen, helderweten, helderhoren, helderzien
 + voor mensen op zoek naar diepgang, die intuïtief weten dat er meer is, en daarin begeleiding zoeken
 
 
