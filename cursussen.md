@@ -74,7 +74,10 @@ De opleiding, inwijdingen en oefeningen duren een hele dag, van 10u tot 18u circ
 Kostprijs:    
 150€ (syllabus, lunch, thee en versnaperingen, opleiding, inwijding, oefeningen)
 
-Check Facebook voor de komende data!
+Eerstkomende data:
+vrijdag 14 augustus 2020
+
+Check Facebook voor updates!
 
 ---
 
