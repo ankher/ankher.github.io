@@ -53,7 +53,7 @@ Komende data:
 vrijdag 14 augustus (onder voorbehoud van corona)   
 Kostprijs: 75€   
 
-Eigen lunchpakket en drinken meenemen, stapschoenen, kledij volgens het weer.   
+Eigen lunchpakket en drinken meenemen, stapschoenen, kledij aangepast aan het weer.   
 
 Check telkens wel de Facebook pagina voor het laatste nieuws, updates, e.d.!
 
