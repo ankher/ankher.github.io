@@ -22,7 +22,7 @@ Telkens met een theoretisch en praktisch gedeelte.
 Deze 10 lessen vormen 1 geheel. Het wordt aangeraden ze allemaal te volgen, want de inhoud bouwt telkens verder.   
 Als je eens niet kan volgen, kan je die les apart later inpikken wanneer de serie herhaald wordt.   
 
-Start opnieuw op 7 september 2020, elke maandagavond 19-20u, behalve tijdens schoolvakanties. 
+Start opnieuw op 9 september 2020, elke woensdagavond 18:45-19:45u, behalve tijdens schoolvakanties. 
 Je kan kiezen om de lessen life of online te volgen.   
 10€ per les./ 100€ voor het deel van 10 lessen.    
 
@@ -37,7 +37,7 @@ Telkens met een theoretisch en praktisch gedeelte.
 Deze 10 lessen vormen 1 geheel. Het wordt aangeraden ze allemaal te volgen, want de inhoud bouwt telkens verder.   
 Als je eens niet kan volgen, kan je die les apart later inpikken wanneer de serie herhaald wordt.   
 
-Start opnieuw op 7 december 2020, elke maandagavond 19-20u, behalve tijdens schoolvakanties.  
+Start opnieuw op 9 december 2020, elke woendagavond 18:45-19:45u, behalve tijdens schoolvakanties.  
 Je kan kiezen om de lessen life of online te volgen.   
 10€ per les./ 100€ voor het deel van 10 lessen.      
 
@@ -53,7 +53,7 @@ Telkens met een theoretisch en praktisch gedeelte.
 Deze 10 lessen vormen 1 geheel. Het wordt aangeraden ze allemaal te volgen, want de inhoud bouwt telkens verder.   
 Als je eens niet kan volgen, kan je die les apart later inpikken wanneer de serie herhaald wordt.   
 
-Start opnieuw op 15 maart 2021, elke maandagavond 19-20u, behalve tijdens schoolvakanties. 
+Start opnieuw op 17 maart 2021, elke woensdagavond 18:45-19:45u, behalve tijdens schoolvakanties. 
 Je kan kiezen om de lessen life of online te volgen.   
 10€ per les./ 100€ voor het deel van 10 lessen.
 
