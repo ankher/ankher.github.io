@@ -19,7 +19,7 @@ Het **ankh-teken** in het logo is een oud Egyptisch symbool dat je overal in tem
 
 Het **anker** staat symbool voor stabiliteit, zekerheid, verankerd zijn, stevige basis.   
 
-Je zou er tevens ook een maansikkel kunnen in zien; de **maan** als symbool voor vrouwelijkheid, vrouwelijke kracht, krachtbron voor zelfreflectie.   
+In het onderste deel zou je ook een maansikkel kunnen zien; de **maan** als symbool voor vrouwelijkheid, vrouwelijke kracht, krachtbron voor zelfreflectie.   
 
 Al deze symbolen samen zorgen ervoor dat de klemtoon in de Intuïtieschool Het Ankher ligt op het groeien in bewustzijn van wie jij werkelijk bent, in het licht van jouw levenskracht en goddelijke inspiratie/ intuïtie. 
 Dat vormt een solide basis met stevige fundamenten, van waaruit jij ten volle in jouw kracht kan staan, jouw leven ontdekken!
