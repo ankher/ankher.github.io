@@ -12,11 +12,11 @@ De bedoeling van deze workshop is dat je via je tekening zicht krijgt op je eige
 Een speelse kleurrijke manier om tot dieper bewustzijn te komen!
 
 Komende data:    
-zaterdag 11 juli 14u-16u   
-zaterdag 8 augustus 14-16u   
+zaterdag 11 juli 14u-16:30u   
+zaterdag 8 augustus 14-16:30u   
 Kostprijs: 50€
 
-Check telkens wel de Facebook pagina voor het laatste nieuws, updates, e.d.!
+Check Facebook pagina voor het laatste nieuws, updates, e.d.!
 
 ![workshops](images/kleurjeleven.png)
 
