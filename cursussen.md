@@ -86,19 +86,20 @@ Check Facebook voor updates!
 
 Ons lichaam krijgt veel te verduren: stress, ongezonde voeding, onaangepaste levensstijl, etc hetgeen dan verder weer zorgt voor lichamelijke klachten, pijn, ziekte,...
 
-Hoe goed ken je je lichaam? hoe snel luister je naar pijnsignalen of ongemak? of duw je ze weg, luister je niet, "nie pleuje?",... het lichaam stuurt signalen met een reden. Het wil je iets duidelijk maken. In deze cursus leer je de basis. Je leert in de eerste plaats aandachtig zijn en respect op te brengen voor de wijsheid van het lichaam en zijn processen. 
+Hoe goed ken je je lichaam? hoe snel luister je naar pijnsignalen of ongemak? of duw je ze weg, luister je niet, "nie pleuje?",... het lichaam stuurt signalen met een reden. Het wil je iets duidelijk maken. Het lichaam is vele keren intelligenter dan dat wij er met ons denkend hoofd bij kunnen.   
+In deze cursus leer je de basis van wat het lichaam allemaal te vertellen heeft. Je leert in de eerste plaats aandachtig zijn en respect op te brengen voor de wijsheid van het lichaam en zijn processen. 
 Je leert hoe alles verbonden is, hoe elk deel met het andere samenwerkt. Het zijn geen lessen in anatomie, het zijn lessen in levensenergie. Want eens je die mechaniek begrepen hebt, weet je zelf hoe je energie te sturen, aan te vullen, wijs te gebruiken. 
 
 De cursus baseert zich op de inzichten uit de Oosterse 5 elementen-leer en principes ervan binnen Shiatsu.
 
-Ik bied de cursus zowel face2face aan, dat wil zeggen life in de praktijkruimte in Wetteren;    
-Voor wie liever online volgt, is er de gelijklopende online cursus, waar wel iets minder diep op alles zal ingegaan worden om de schermtijd te beperken en de aandacht levendig te houden.
+Ik bied de cursus enerzijds face2face aan, dat wil zeggen life in de praktijkruimte in Wetteren;       
+Anderzijds, voor wie liever online volgt, is er de gelijklopende online cursus, waar wel iets minder diep op alles zal ingegaan worden om de schermtijd te beperken en de aandacht levendig te houden.
 
 De lessen zijn een boeiende mix tussen theorie en praktijkoefeningen, om zeer goed in het lichaam te leren voelen.
 
 face2face: 6 zaterdagen 10-16u; start vanaf september 2020; 1 zaterdag per maand: 26/9, 24/10, 21/11, 12/12, 23/1/21, 20/2/21; 780 euro voor het pakket van 6 lessen; 150 euro per losse lesdag.
 
-online: 12 maandagavonden 20-21u30; start vanaf 7 september 2020; elke 2 weken; 580 euro voor het pakket van 12 lessen; 50 euro per losse les. Data: 7/9, 21/9, 5/10, 19/10, 9/11, 23/11, 7/12, 21/12, 11/1/21, 25/1/21, 8/2/21, 22/2/21
+online: 12 maandagavonden 19-20u30; start vanaf 7 september 2020; elke 2 weken; 580 euro voor het pakket van 12 lessen; 50 euro per losse les. Data: 7/9, 21/9, 5/10, 19/10, 9/11, 23/11, 7/12, 21/12, 11/1/21, 25/1/21, 8/2/21, 22/2/21
 
 ___
 
