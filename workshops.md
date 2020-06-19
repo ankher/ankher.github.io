@@ -16,7 +16,7 @@ zaterdag 11 juli 14u-16:30u
 zaterdag 8 augustus 14-16:30u   
 Kostprijs: 50€
 
-Check Facebook pagina voor het laatste nieuws, updates, e.d.!
+Check [**Facebook**](https://www.facebook.com/intuitieschool/) voor het laatste nieuws, updates, e.d.!
 
 ![workshops](images/kleurjeleven.png)
 
@@ -36,7 +36,7 @@ zaterdag 25 juli 14u-16u
 zaterdag 22 augustus 14-16u   
 Kostprijs: 25€   
 
-Check telkens wel de Facebook pagina voor het laatste nieuws, updates, e.d.!
+Check [**Facebook**](https://www.facebook.com/intuitieschool/) voor het laatste nieuws, updates, e.d.!
 
 ![workshops](images/wandeling.png)
 ![workshops](images/wandeling2.png)
