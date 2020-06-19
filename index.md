@@ -77,7 +77,7 @@ Het Ankher is een opleidingscentrum waar intuïtie, zelfontwikkeling, groei naar
 ---  
 
 
-Volg ons op [**Facebook**](https://www.facebook.com/manopura/) voor het laatste nieuws!
+Volg ons op [**Facebook**](https://www.facebook.com/intuitieschool) voor het laatste nieuws!
 
 ---
 
