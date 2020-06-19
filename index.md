@@ -11,7 +11,7 @@ menu: welkom
 
 
 Welkom bij Het Ankher! Hier kom je alles te weten over intuïtie, diepgang, je eigen intuïtief aanvoelen, je creatieve kracht, bewustwording...
-Je leert het (her)kennen, erop vertrouwen, verder ontwikkelen, en gebruiken in je dagdagelijks leven.   
+Je leert intuïtie (her)kennen, erop vertrouwen, verder ontwikkelen, en gebruiken in je dagdagelijks leven.   
 
 Er worden regelmatig opleidingen georganiseerd, workshops, readings/healings,... om je hierin te begeleiden. 
 
