@@ -22,7 +22,7 @@ Telkens met een theoretisch en praktisch gedeelte.
 Deze 10 lessen vormen 1 geheel. Het wordt aangeraden ze allemaal te volgen, want de inhoud bouwt telkens verder.   
 Als je eens niet kan volgen, kan je die les apart later inpikken wanneer de serie herhaald wordt.   
 
-Start opnieuw op 9 september 2020, elke woensdagavond 18:45-19:45u, behalve tijdens schoolvakanties. 
+Start opnieuw op 9 september 2020, elke woensdagavond 18:45u-19:45u, behalve tijdens schoolvakanties. 
 Je kan kiezen om de lessen life of online te volgen.   
 10€ per les./ 100€ voor het deel van 10 lessen.    
 
@@ -37,7 +37,7 @@ Telkens met een theoretisch en praktisch gedeelte.
 Deze 10 lessen vormen 1 geheel. Het wordt aangeraden ze allemaal te volgen, want de inhoud bouwt telkens verder.   
 Als je eens niet kan volgen, kan je die les apart later inpikken wanneer de serie herhaald wordt.   
 
-Start opnieuw op 9 december 2020, elke woendagavond 18:45-19:45u, behalve tijdens schoolvakanties.  
+Start opnieuw op 9 december 2020, elke woendagavond 18:45u-19:45u, behalve tijdens schoolvakanties.  
 Je kan kiezen om de lessen life of online te volgen.   
 10€ per les./ 100€ voor het deel van 10 lessen.      
 
@@ -53,7 +53,7 @@ Telkens met een theoretisch en praktisch gedeelte.
 Deze 10 lessen vormen 1 geheel. Het wordt aangeraden ze allemaal te volgen, want de inhoud bouwt telkens verder.   
 Als je eens niet kan volgen, kan je die les apart later inpikken wanneer de serie herhaald wordt.   
 
-Start opnieuw op 17 maart 2021, elke woensdagavond 18:45-19:45u, behalve tijdens schoolvakanties. 
+Start opnieuw op 17 maart 2021, elke woensdagavond 18:45u-19:45u, behalve tijdens schoolvakanties. 
 Je kan kiezen om de lessen life of online te volgen.   
 10€ per les./ 100€ voor het deel van 10 lessen.
 
@@ -97,9 +97,9 @@ Anderzijds, voor wie liever online volgt, is er de gelijklopende online cursus, 
 
 De lessen zijn een boeiende mix tussen theorie en praktijkoefeningen, om zeer goed in het lichaam te leren voelen.
 
-face2face: 6 zaterdagen 10-16u; start vanaf september 2020; 1 zaterdag per maand: 26/9, 24/10, 21/11, 12/12, 23/1/21, 20/2/21; 780 euro voor het pakket van 6 lessen; 150 euro per losse lesdag.
+face2face: 6 zaterdagen 10u-16u; start vanaf september 2020; 1 zaterdag per maand: 26/9, 24/10, 21/11, 12/12, 23/1/21, 20/2/21; 780 euro voor het pakket van 6 lessen; 150 euro per losse lesdag.
 
-online: 12 maandagavonden 19-20u30; start vanaf 7 september 2020; elke 2 weken; 580 euro voor het pakket van 12 lessen; 50 euro per losse les. Data: 7/9, 21/9, 5/10, 19/10, 9/11, 23/11, 7/12, 21/12, 11/1/21, 25/1/21, 8/2/21, 22/2/21
+online: 12 maandagavonden 19u-20u30; start vanaf 7 september 2020; elke 2 weken; 580 euro voor het pakket van 12 lessen; 50 euro per losse les. Data: 7/9, 21/9, 5/10, 19/10, 9/11, 23/11, 7/12, 21/12, 11/1/21, 25/1/21, 8/2/21, 22/2/21
 
 ___
 
