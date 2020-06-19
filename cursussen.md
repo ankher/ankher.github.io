@@ -65,7 +65,7 @@ Je weet wat Reiki is, en je wil de stap zetten in je eigen lichamelijke, geestel
 Indien je nog niet precies weet wat Reiki is, volg je best eerst een infosessie. Die worden regelmatig gegeven, check de data op Facebook!     
 
 
-Reiki is het mooiste cadeau dat je jezelf kan schenken als EHBO-zelfhulp en aan je dierbaren. Je leert spelenderwijs wat energie voor jou kan doen, je begrijpt beter waarom je bepaalde obstakels tegenkomt en je gaat er vlotter doorheen!   
+Reiki is het mooiste cadeau dat je jezelf kan schenken als EHBO-zelfhulp en aan je dierbaren. Je leert spelenderwijs wat energie voor jou kan doen, je leert hoe het zelfgenezend vermogen van je lichaam werkt, je begrijpt beter waarom je bepaalde obstakels tegenkomt en je gaat er vlotter doorheen!   
 Het verruimt je blik op alles wat er mogelijks rondom jou speelt, het verdiept je leven en inzicht.   
 
 
