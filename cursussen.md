@@ -77,7 +77,7 @@ Kostprijs:
 Eerstkomende data:
 vrijdag 14 augustus 2020
 
-Check Facebook voor updates!
+Check [**Facebook**](https://www.facebook.com/intuitieschool/) voor updates!
 
 ---
 
@@ -104,6 +104,6 @@ online: 12 maandagavonden 19u-20u30; start vanaf 7 september 2020; elke 2 weken;
 ___
 
 
-[**Ja, ik neem deel!**](mailto:marian@manopura.be) aan een cursus! Laat me weten dewelke je precies interesseert, en ik contacteer je voor meer details, link voor webinars, etc! 
+[**Ja, ik neem deel!**](mailto:marian@de-intuitieschool.be) aan een cursus! Laat me weten dewelke je precies interesseert, en ik contacteer je voor meer details, link voor webinars, etc! 
 
-Volg ons op [**Facebook**](https://www.facebook.com/manopura/) voor het laatste nieuws!
+Volg ons op [**Facebook**](https://www.facebook.com/intuitieschool/) voor het laatste nieuws!
