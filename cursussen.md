@@ -62,7 +62,7 @@ Je kan kiezen om de lessen life of online te volgen.
 **REIKI 1 OPLEIDING & INWIJDINGEN**
 
 Je weet wat Reiki is, en je wil de stap zetten in je eigen lichamelijke, geestelijke en spirituele ontwikkeling. 
-Indien je nog niet precies weet wat Reiki is, volg je best eerst een infosessie. Die worden regelmatig gegeven, check de data op Facebook!     
+Indien je nog niet precies weet wat Reiki is, volg je best eerst een infosessie. Die worden regelmatig gegeven, check de data op Facebook! Of je boekt een Reiki healing om gewaar te worden wat het met je doet.      
 
 
 Reiki is het mooiste cadeau dat je jezelf kan schenken als EHBO-zelfhulp en aan je dierbaren. Je leert spelenderwijs wat energie voor jou kan doen, je leert hoe het zelfgenezend vermogen van je lichaam werkt, je begrijpt beter waarom je bepaalde obstakels tegenkomt en je gaat er vlotter doorheen!   
