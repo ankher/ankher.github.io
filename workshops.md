@@ -11,6 +11,8 @@ In deze workshop mag je lekker kleuren met alles wat voorhanden is: pastelkrijt,
 De bedoeling van deze workshop is dat je via je tekening zicht krijgt op je eigen binnenwereld. Wat helpt je, wat blokkeert je? Je tekening als richtingaanwijzer van je intuïtie. Ik coach je door je ervaring, en samen met de anderen van de groep creeëren we extra dynamiek en groepsinzicht. 
 Een speelse kleurrijke manier om tot dieper bewustzijn te komen!
 
+Je hoeft helemaal geen tekentalent te hebben! je speelt gewoon met vorm en kleur, de rest ontstaat van zelf!
+
 Komende data:    
 zaterdag 11 juli 14u-16:30u   
 zaterdag 8 augustus 14-16:30u   
