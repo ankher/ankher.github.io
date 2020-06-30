@@ -20,7 +20,11 @@ Tarieven:
 30€ - 30 minuten   
 60€ - 1 uur   
 
-[**Ik boek een reading**](mailto:marian@de-intuitieschool.be) 
+[**Ik boek een reading**](mailto:marian@de-intuitieschool.be)    
+
+
+---
+
 
 **HEALING**
 
