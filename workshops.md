@@ -18,6 +18,8 @@ zaterdag 11 juli 14u-16:30u
 zaterdag 8 augustus 14-16:30u   
 Kostprijs: 50€
 
+[**Ik schrijf me in!**](mailto:marian@de-intuitieschool.be)    
+
 Check [**Facebook**](https://www.facebook.com/intuitieschool/) voor het laatste nieuws, updates, e.d.!
 
 ![workshops](images/kleurjeleven.png)
@@ -37,6 +39,8 @@ Komende data:
 zaterdag 25 juli 14u-16u   
 zaterdag 22 augustus 14-16u   
 Kostprijs: 25€   
+
+[**Ik schrijf me in!**](mailto:marian@de-intuitieschool.be)    
 
 Check [**Facebook**](https://www.facebook.com/intuitieschool/) voor het laatste nieuws, updates, e.d.!
 
