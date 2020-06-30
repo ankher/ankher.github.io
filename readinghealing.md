@@ -20,6 +20,7 @@ Tarieven:
 30€ - 30 minuten   
 60€ - 1 uur   
 
+[**Ik boek een reading**](mailto:marian@de-intuitieschool.be) 
 
 **HEALING**
 
@@ -37,4 +38,6 @@ Reiki:
 
 Soul Retrieval:    
 120€ - 1,5 tot 2 uur
+
+[**Ik boek een healing**](mailto:marian@de-intuitieschool.be) 
 
