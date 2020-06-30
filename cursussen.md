@@ -104,6 +104,6 @@ online: 12 maandagavonden 19u-21u; start vanaf 7 september 2020; elke 2 weken; 6
 ___
 
 
-[**Ja, ik neem deel!**](mailto:marian@de-intuitieschool.be) aan een cursus! Laat me weten dewelke je precies interesseert, en ik contacteer je voor meer details, link voor webinars, etc! 
+[**Ik schrijf me in!**](mailto:marian@de-intuitieschool.be) Laat me weten welke cursus je precies interesseert, en ik contacteer je voor meer details, link voor webinars, etc! 
 
 Volg ons op [**Facebook**](https://www.facebook.com/intuitieschool/) voor het laatste nieuws!
