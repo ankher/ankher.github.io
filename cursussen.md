@@ -57,6 +57,8 @@ Start opnieuw op 17 maart 2021, elke woensdagavond 18:45u-19:45u, behalve tijden
 Je kan kiezen om de lessen life of online te volgen.   
 10€ per les./ 100€ voor het deel van 10 lessen.
 
+
+[**Ik schrijf me in!**](mailto:marian@de-intuitieschool.be)
 ---
 
 **REIKI 1 OPLEIDING & INWIJDINGEN**
@@ -76,6 +78,8 @@ Kostprijs:
 
 Eerstkomende data:
 vrijdag 14 augustus 2020
+
+[**Ik schrijf me in!**](mailto:marian@de-intuitieschool.be) 
 
 Check [**Facebook**](https://www.facebook.com/intuitieschool/) voor updates!
 
