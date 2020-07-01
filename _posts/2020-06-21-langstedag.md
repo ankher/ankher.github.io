@@ -29,5 +29,5 @@ Wil je al deze krachten en energieën leren kennen om ze concreet in te zetten? 
 
 Schrijf je in voor deze kracht-training (met veel zachtheid) die start in september! Zo blijf je gezond, sterk, bewust een heel jaar door! Je lichaam als krachtbron, als deel van de natuur.    
 
-[**Ontwikkel lichaamsbewustzijn**](http://www.de-intuitieschool.be/cursussen.html)
+Meer info: [**Ontwikkel lichaamsbewustzijn**](http://www.de-intuitieschool.be/cursussen.html)
 
