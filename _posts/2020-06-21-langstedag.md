@@ -27,7 +27,7 @@ Dit is een jaarcyclus, mee met de seizoenen. Je kent misschien ook de maan-cyclu
 
 Wil je al deze krachten en energieën leren kennen om ze concreet in te zetten? voor je werk? voor je gezondheid? voor je lichaam? voor je energie-niveau? voor een toename in intuïtie? Als je mee beweegt met de seizoenen, met de natuur, dan ben je een sterk mens; krachtig. Tot veel in staat. En hoe meer je in je eigen kracht staat, hoe minder je verliest aan iets anders, of anderen. Je intuïtie en buikgevoel worden steeds sterker! En dan maakt ziekte weinig kans om binnen te komen, want je voelt snel aan je lichaam wat er precies scheelt. Of dan weet je zeer goed wat te kiezen in bepaalde situaties. Of dan blijf je sterk en trouw aan jezelf en je eigen waarden. Wat heb je te verliezen? niets. Wat heb je te winnen? alles! Laat je intuïtie voor je werken, daar word je nooit moe van!
 
-Schrijf je in voor deze kracht-training (met veel zachtheid) die start in september! Zo blijf je gezond, sterk, bewust een heel jaar door!   
+Schrijf je in voor deze kracht-training (met veel zachtheid) die start in september! Zo blijf je gezond, sterk, bewust een heel jaar door! Je lichaam als krachtbron, als deel van de natuur.    
 
-[**Ontwikkel lichaamsbewustzijn**](http://www.manopura.be/cursussen.html)
+[**Ontwikkel lichaamsbewustzijn**](http://www.de-intuitieschool.be/cursussen.html)
 
