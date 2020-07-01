@@ -1,4 +1,9 @@
-de langste dag
+---
+layout: blog
+title:  "De langste dag"
+date:   2020-06-21
+tags: [kracht,intuïtie,energie,balans]
+---
 
 
 21 juni, en het jaar kantelt.
@@ -14,14 +19,14 @@ En zo is de mens deel van het groter geheel; deel van de natuurlijke cycli. Deel
 Misschien merk je dat niet in zoveel detail en gaat het leven wat aan je voorbij, kabbelt het voort. 
 
 Toch is het wel eens interessant om te kijken of jouw leven ook meebeweegt met deze grote slinger van opgaan en neergaan, jaar na jaar opnieuw. 
-Het wordt zelf nog interessanter als je de kracht en energie die van dit natuurlijk proces uitgaat, ook doelbewust gaat hanteren!!
+Het wordt zelf nog interessanter als je de kracht en energie die van dit natuurlijk proces uitgaat, ook doelbewust gaat hanteren!! Misschien doe je het al, onbewust, vanuit een aangeboren intuïtie. Of misschien heb je nog een zetje nodig, of eerst wat meer inzicht in de materie.
 
 Je gebruikt de stilte van de winter om alle nieuwe zaadjes te laten ontkiemen; je gebruikt het enthousiasme, de levenskracht en dynamiek van de lente om alles te doen groeien; je gebruikt de warmte van de zomer om de nieuwe projecten verder te laten rijpen en vol-wassen te laten worden; je gebruikt de nazomer om te oogsten, de herfst om ingetogen te evalueren, en zo nodig vanaf de winter strategieën te laten kiemen ter verbetering of aanvulling.
 
 Dit is een jaarcyclus, mee met de seizoenen. Je kent misschien ook de maan-cyclus, dat is er eentje in het klein, per maand; of nog kleiner: een dag. Het patroon herhaalt zich telkens weer, van klein naar groot, van groot naar klein. Yin en Yang. Het perpetuum mobile.
 
-Wil je al deze krachten en energieën leren kennen om ze concreet in te zetten? voor je werk? voor je gezondheid? voor je energie-niveau? Als je mee beweegt met de seizoenen, met de natuur, dan ben je een sterk mens; krachtig. Tot veel in staat. En hoe meer je in je eigen kracht staat, hoe minder je verliest aan iets anders, of anderen. En dan maakt ziekte weinig kans om binnen te komen. Wat heb je te verliezen? niets. Wat heb je te winnen? alles! 
+Wil je al deze krachten en energieën leren kennen om ze concreet in te zetten? voor je werk? voor je gezondheid? voor je lichaam? voor je energie-niveau? voor een toename in intuïtie? Als je mee beweegt met de seizoenen, met de natuur, dan ben je een sterk mens; krachtig. Tot veel in staat. En hoe meer je in je eigen kracht staat, hoe minder je verliest aan iets anders, of anderen. Je intuïtie en buikgevoel worden steeds sterker! En dan maakt ziekte weinig kans om binnen te komen, want je voelt snel aan je lichaam wat er precies scheelt. Of dan weet je zeer goed wat te kiezen in bepaalde situaties. Of dan blijf je sterk en trouw aan jezelf en je eigen waarden. Wat heb je te verliezen? niets. Wat heb je te winnen? alles! Laat je intuïtie voor je werken, daar word je nooit moe van!
 
-Schrijf je in voor deze kracht-training (met veel zachtheid) die start in september! Zo blijf je gezond  en sterk een heel jaar door!
+Schrijf je in voor deze kracht-training (met veel zachtheid) die start in september! Zo blijf je gezond, sterk, bewust een heel jaar door!
 
-Versterk je gezondheid/ ontwikkel lichaamsbewustzijn
+Ontwikkel lichaamsbewustzijn
