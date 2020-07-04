@@ -14,9 +14,12 @@ Een speelse kleurrijke manier om tot dieper bewustzijn te komen!
 Je hoeft helemaal geen tekentalent te hebben! je speelt gewoon met vorm en kleur, de rest ontstaat van zelf!
 
 Komende data:    
-zaterdag 11 juli 14u-16:30u   
+zaterdag 11 juli 14u-16:30u   of    
 zaterdag 8 augustus 14-16:30u   
-Kostprijs: 50€
+Kostprijs: 50€/ namiddag   
+
+Het is niet nodig de 2 dagen te komen. Je kiest welke dag je meest past.    
+Natuurlijk als je de smaak te pakken hebt gekregen, mag je zeker verschillende keren komen 😋   
 
 [**Ik schrijf me in!**](mailto:marian@de-intuitieschool.be)    
 
@@ -36,9 +39,12 @@ De wandeling vindt plaats in de Kalkense Meersen.
 Bij slecht weer wordt het programma aangepast aan een sjamanistische intuïtie-oefening binnen. 
 
 Komende data:    
-zaterdag 25 juli 14u-16u   
+zaterdag 25 juli 14u-16u   of    
 zaterdag 22 augustus 14-16u   
-Kostprijs: 25€   
+Kostprijs: 25€/ namiddag     
+
+Het is niet nodig de 2 dagen te komen. Je kiest welke dag je meest past.    
+Natuurlijk als je de smaak te pakken hebt gekregen, mag je zeker verschillende keren komen 😋   
 
 [**Ik schrijf me in!**](mailto:marian@de-intuitieschool.be)    
 
