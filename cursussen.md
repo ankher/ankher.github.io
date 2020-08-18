@@ -103,9 +103,11 @@ Anderzijds, voor wie liever online volgt, is er de gelijklopende online cursus, 
 
 De lessen zijn een boeiende mix tussen theorie en praktijkoefeningen, om zeer goed in het lichaam te leren voelen. 
 
-face2face: 6 zaterdagen 10u-16u; start vanaf september 2020; 1 zaterdag per maand: 26/9, 24/10, 21/11, 12/12, 23/1/21, 20/2/21; 870 euro voor het pakket van 6 zaterdagen; 150 euro per losse lesdag.
+offline: 6 zaterdagen 10u-16u; start vanaf september 2020; 1 zaterdag per maand: 26/9, 24/10, 21/11, 12/12, 23/1/21, 20/2/21; 870 euro voor het pakket van 6 zaterdagen; 150 euro per losse lesdag.
 
 online: 12 maandagavonden 19u-21u; start vanaf 7 september 2020; elke 2 weken; 690 euro voor het pakket van 12 lessen; 60 euro per losse les van 2 uur. Data: 7/9, 21/9, 5/10, 19/10, 9/11, 23/11, 7/12, 21/12, 11/1/21, 25/1/21, 8/2/21, 22/2/21
+
+Early bird promotie: wie inschrijft voor het hele traject, dus de 6 zaterdagen of de 12 maandagavonden, geniet tot en met 1 september middernacht van een fabuleuze korting van 70€!!! Voor wie zijn gezondheid serieus neemt, en goed gewapend de winter wil doorkomen!
 
 ___
 
