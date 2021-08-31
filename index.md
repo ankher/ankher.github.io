@@ -10,8 +10,12 @@ menu: welkom
 ---
 
 
-Welkom bij Het Ankher! Hier kom je alles te weten over intuïtie, diepgang, je eigen intuïtief aanvoelen, je creatieve kracht, bewustwording...
-Je leert intuïtie (her)kennen, erop vertrouwen, verder ontwikkelen, en gebruiken in je dagdagelijks leven.   
+Welkom bij Het Ankher! Hier kom je alles te weten over intuïtie, diepgang, je eigen aanvoelen, je creatieve kracht, bewustwording, kortom alles wat je kan helpen aan persoonlijke ontwikkeling en groei...
+Je leert jezelf (her)kennen, meer vertrouwen hebben op je aanvoelen en een waardevol leven te leiden volgens jouw Waarheid en kracht. 
+
+Het Ankher is niet zozeer een opleidingscentrum in de letterlijke zin van het woord, maar eerder een plek waar je tot jezelf kan komen, en indien dat moeilijk gaat, om het aan te leren hoe je het kan doen. Heb je vragen over welk richting je uit wil in je leven? ben je op zoek naar meer verdieping? Dan vind je hier beslist wel iets dat je kan vooruit helpen!   
+
+# Achtergrond   
 
 Het **ankh-teken** in het logo is een oud Egyptisch symbool dat je overal in tempels en muurschilderingen terug kan vinden. Het staat symbool voor levenskracht, adem, bescherming, de link tussen dit leven en de onsterfelijkheid.   
 
