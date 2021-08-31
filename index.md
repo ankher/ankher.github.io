@@ -13,11 +13,11 @@ menu: welkom
 Welkom bij Het Ankher! Hier kom je alles te weten over intuïtie, diepgang, je eigen aanvoelen, je creatieve kracht, bewustwording, kortom alles wat je kan helpen aan persoonlijke ontwikkeling en groei...
 Je leert jezelf (her)kennen, meer vertrouwen hebben op je aanvoelen en een waardevol leven te leiden volgens jouw Waarheid en kracht. 
 
-Het Ankher is niet zozeer een opleidingscentrum in de letterlijke zin van het woord, maar eerder een plek waar je tot jezelf kan komen, en indien dat moeilijk gaat, om het aan te leren hoe je het kan doen. Heb je vragen over welk richting je uit wil in je leven? ben je op zoek naar meer verdieping? Dan vind je hier beslist wel iets dat je kan vooruit helpen!   
+Het Ankher is niet zozeer een opleidingscentrum in de letterlijke zin van het woord, maar eerder een plek waar je tot jezelf kan komen, en indien dat moeilijk gaat, om het aan te leren hoe je het kan doen. Heb je vragen over welk richting je uit wil in je leven? ben je op zoek naar meer verdieping? Voel je dat er iets meer is, maar je weet niet wat precies? Dan vind je hier beslist wel iets dat je kan vooruit helpen!   
 
 # Achtergrond   
 
-Het **ankh-teken** in het logo is een oud Egyptisch symbool dat je overal in tempels en muurschilderingen terug kan vinden. Het staat symbool voor levenskracht, adem, bescherming, de link tussen dit leven en de onsterfelijkheid.   
+Het **ankh-teken** in het logo is een oud Egyptisch symbool dat je overal in tempels terug kan vinden. Het staat symbool voor levenskracht, adem, bescherming, de link tussen dit leven en de onsterfelijkheid.   
 
 Het **anker** staat symbool voor stabiliteit, zekerheid, verankerd zijn, stevige basis.   
 
@@ -28,7 +28,7 @@ Dat vormt een solide basis met stevige fundamenten, van waaruit jij ten volle in
 
 De wereld en de mens heeft nood aan meer diepgang, meer bewustzijn. We leven in een wegwerpcultuur, in een virtuele wereld op tablet, smartphone, games,... De mens vervreemt van zijn eigen natuur. Veel mensen beginnen te merken dat het zo niet meer klopt. Maar wat mankeert er dan? Het Ankher wil met cursussen en workshops meer inzicht brengen, en het besef wakker maken dat ieder mens beschikt over een enorme bron aan innerlijke intelligentie, intuïtie, zelfhelend vermogen, bewustzijn. Dat helpt om een leven te leiden dat 'zin' heeft, dat je vervult met een wezenlijk goed gevoel.   
 
-Er worden regelmatig opleidingen georganiseerd, workshops, readings/healings,... om je hierin te begeleiden. 
+Bij het Ankher kan je terecht voor persoonlijke begeleiding, opleidingen, workshops, readings/healings,...
 
 
 
@@ -58,7 +58,7 @@ Ik ben heel blij met deze gang van zaken; het liep zoals het moest lopen, voor m
 
 
 # Missie  
-Het Ankher is een opleidingscentrum waar intuïtie, zelfontwikkeling, groei naar dieper bewustzijn centraal staan. Het wil een tegengewicht bieden aan het huidige opleidingsaanbod waar veelal het accent ligt op mentale processen. Het 'ego', het rationeel denken slaat in onze westerse maatschappij door in proportie, terwijl het 'aanvoelen', het 'buikgevoel' wordt weggelachen. Het Ankher wil het 'zesde' zintuig terug in het daglicht stellen, op een nuchtere manier.  
+Het Ankher is een plek waar intuïtie, zelfontwikkeling, groei naar dieper bewustzijn centraal staan. Het wil een tegengewicht bieden aan de huidige maatschappij cultuur waar veelal het accent ligt op mentale processen. Het 'ego', het rationeel denken slaat in onze westerse wereld door in proportie, terwijl het 'aanvoelen', het 'buikgevoel' wordt weggelachen. Het Ankher wil je blik helpen verruimen; want alleen met het hoofd werken en alles beredeneren en rationaliseren, is op zijn minst maar 1/3 van onze capaciteiten als mens. Er is veel meer dat zin geeft aan het leven. Dat kan je hier ontdekken!
 
 
 
