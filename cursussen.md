@@ -80,12 +80,12 @@ Reiki is het mooiste cadeau dat je jezelf kan schenken als EHBO-zelfhulp en aan 
 Het verruimt je blik op alles wat er mogelijks rondom jou speelt, het verdiept je leven en inzicht.   
 
 
-De opleiding, inwijdingen en oefeningen duren per graad een hele dag, van 10u tot 18u circa. Na deze dag verkrijg je het certificaat. 
+De opleiding, inwijdingen en oefeningen duren per graad een hele dag, van 10u tot 18u circa. Na deze dag verkrijg je het certificaat.    
 
-Kostprijs omvat syllabus, lunch, thee en versnaperingen, opleiding, inwijding, oefeningen.
-Reiki 1: 150€ 
-Reiki 2: 150€ 
-Reiki 3 of Master: op aanvraag
+Kostprijs omvat syllabus, lunch, thee en versnaperingen, opleiding, inwijding, oefeningen.   
+Reiki 1: 150€    
+Reiki 2: 150€    
+Reiki 3 of Master: op aanvraag   
 
 [**Ik schrijf me in!**](mailto:marian@de-intuitieschool.be) 
 
