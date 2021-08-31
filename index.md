@@ -23,8 +23,8 @@ Het **anker** staat symbool voor stabiliteit, zekerheid, verankerd zijn, stevige
 
 In het onderste deel zou je ook een maansikkel kunnen zien; de **maan** als symbool voor vrouwelijkheid, vrouwelijke kracht, krachtbron voor zelfreflectie.   
 
-Al deze symbolen samen zorgen ervoor dat de klemtoon in de Intuïtieschool Het Ankher ligt op het groeien in bewustzijn van wie jij werkelijk bent, in het licht van jouw levenskracht en goddelijke inspiratie/ intuïtie. Er is een massa aan energie om ons heen en in onszelf waar we gebruik van kunnen leren maken.
-Dat vormt een solide basis met stevige fundamenten, van waaruit jij ten volle in jouw kracht kan staan, jouw leven ontdekken!
+Al deze symbolen samen zorgen ervoor dat de klemtoon hier ligt op het groeien in bewustzijn van wie jij werkelijk bent, in het licht van jouw levenskracht en goddelijke inspiratie/ intuïtie. Er is een massa aan energie om ons heen en in onszelf waar we gebruik van kunnen leren maken.
+Dat vormt een solide basis met stevige fundamenten, van waaruit jij ten volle in jouw kracht kan staan!
 
 De wereld en de mens heeft nood aan meer diepgang, meer bewustzijn. We leven in een wegwerpcultuur, in een virtuele wereld op tablet, smartphone, games,... De mens vervreemt van zijn eigen natuur. Veel mensen beginnen te merken dat het zo niet meer klopt. Maar wat mankeert er dan? Het Ankher wil meer inzicht helpen brengen, en het besef wakker maken dat ieder mens beschikt over een enorme bron aan innerlijke intelligentie, energie, intuïtie, zelfhelend vermogen, bewustzijn. Dat helpt om een leven te leiden dat 'zin' heeft, dat je vervult met een wezenlijk goed gevoel.   
 
@@ -51,9 +51,8 @@ Mijn pad in die zin was hobbelig. Ik herinner me dat ik als 5 jarige zat te spel
 Maar als het je pad is, krijg je zo nu en dan een por. En als die por niet duidelijk genoeg was, komt er nog 1 en nog 1. Tot het groter moet, een hamer. Figuurlijk. Rond mijn 35e had ik eindelijk begrepen dat ik er wat mee aan moest, met mijn intuïtie. Maar wat? en daar begon mijn ontdekkingstocht! Ik heb het hele spectrum aan opleidingen doorploegd, van de meest zweverige tot de meest aardse, omdat ik grondig te werk wilde gaan, om mij een zo duidelijk mogelijk beeld te vormen van wat er allemaal mogelijk is, en hoe ik het in mijn leven verder kon verweven. 
 
 Intuïtie en energie gaan voor mij hand in hand. Als alles goed stroomt, als je energie geen blokkades kent, dan stroomt ook de intuïtie, de bron van informatie over je leven, jouw 'weten'. 
-Intuïtie en ontspanning horen ook bij elkaar. Je hebt maar oor voor je buikgevoel als je geen overmatige stress te verwerken hebt of vol zit met kopzorgen.
+Bewustzijn en ontspanning horen ook bij elkaar. Je hebt maar oor voor je buikgevoel als je geen overmatige stress te verwerken hebt of vol zit met kopzorgen.
 
-Intuïtie leer je het beste verkennen spelenderwijs. Dat is altijd mijn insteek geweest. Als een nieuwsgierig en enthousiast kind dat voor het eerst een nieuw speelgoedje ontdekt! Dat is ook de manier waarop ik het jou wil laten ervaren.
 
 Ik ben heel blij met deze gang van zaken; het liep zoals het moest lopen, voor mij. En al mijn ervaring deel ik graag met jou, zodat ook jij kan genieten van jouw ontdekkingstocht en verdere ontplooiing!
 
