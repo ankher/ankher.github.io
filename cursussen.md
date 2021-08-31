@@ -4,7 +4,7 @@ menu: cursussen
 ---
 # Cursussen
 
-**LEER JE LEEG MAKEN**       
+**Op ontdekking naar jezelf, in 3 stappen**       
 
 Deze cursus bestaat uit 3 delen: HOOFD, HART, HARA.
 Je komt pas tot het herkennen van de stem van je intuïtie, als je aangeleerd hebt dat er daarnaast nog 2 stemmen zijn die je het knap lastig kunnen maken: die van je hoofd (ego) en die van het hart (emo).   
@@ -83,7 +83,7 @@ vrijdag 14 augustus 2020
 
 [**Ik schrijf me in!**](mailto:marian@de-intuitieschool.be) 
 
-Check [**Facebook**](https://www.facebook.com/intuitieschool/) voor updates!
+
 
 ---
 
@@ -114,4 +114,4 @@ ___
 
 [**Ik schrijf me in!**](mailto:marian@de-intuitieschool.be) Laat me weten welke cursus je precies interesseert, en ik contacteer je voor meer details, link voor webinars, etc! 
 
-Volg ons op [**Facebook**](https://www.facebook.com/intuitieschool/) voor het laatste nieuws!
+
