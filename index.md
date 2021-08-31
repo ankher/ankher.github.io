@@ -10,10 +10,10 @@ menu: welkom
 ---
 
 
-Welkom bij Het Ankher! Hier kom je alles te weten over intuïtie, diepgang, je eigen aanvoelen, je creatieve kracht, bewustwording, kortom alles wat je kan helpen aan persoonlijke ontwikkeling en groei...
-Je leert jezelf (her)kennen, meer vertrouwen hebben op je aanvoelen en een waardevol leven te leiden volgens jouw Waarheid en kracht. 
+Welkom bij Het Ankher! Hier kom je alles te weten over energie, intuïtie, diepgang, je eigen aanvoelen, je creatieve kracht, bewustwording, kortom alles wat je kan helpen aan persoonlijke ontwikkeling en groei...
+Je leert jezelf (her)kennen, je lichaam opnieuw voelen, meer vertrouwen hebben op je aanvoelen en een waardevol leven te leiden volgens jouw Waarheid en kracht. 
 
-Het Ankher is niet zozeer een opleidingscentrum in de letterlijke zin van het woord, maar eerder een plek waar je tot jezelf kan komen, en indien dat moeilijk gaat, om het aan te leren hoe je het kan doen. Heb je vragen over welk richting je uit wil in je leven? ben je op zoek naar meer verdieping? Voel je dat er iets meer is, maar je weet niet wat precies? Dan vind je hier beslist wel iets dat je kan vooruit helpen!   
+Het Ankher is niet zozeer een opleidingscentrum in de letterlijke zin van het woord, maar eerder een plek waar je tot jezelf kan komen, en indien dat moeilijk gaat, om het aan te leren hoe je het kan doen. Heb je vragen over welk richting je uit wil in je leven? ben je op zoek naar meer verdieping? Voel je dat er iets meer is, maar je weet niet wat precies? Wil je meer weten over 'energie' in het algemeen en hoe je de energie flow in je lichaam kan bevorderen? Wil je de signalen van je lichaam beter begrijpen? Dan vind je hier beslist wel iets dat je kan vooruit helpen!   
 
 # Achtergrond   
 
@@ -23,14 +23,21 @@ Het **anker** staat symbool voor stabiliteit, zekerheid, verankerd zijn, stevige
 
 In het onderste deel zou je ook een maansikkel kunnen zien; de **maan** als symbool voor vrouwelijkheid, vrouwelijke kracht, krachtbron voor zelfreflectie.   
 
-Al deze symbolen samen zorgen ervoor dat de klemtoon in de Intuïtieschool Het Ankher ligt op het groeien in bewustzijn van wie jij werkelijk bent, in het licht van jouw levenskracht en goddelijke inspiratie/ intuïtie. 
+Al deze symbolen samen zorgen ervoor dat de klemtoon in de Intuïtieschool Het Ankher ligt op het groeien in bewustzijn van wie jij werkelijk bent, in het licht van jouw levenskracht en goddelijke inspiratie/ intuïtie. Er is een massa aan energie om ons heen en in onszelf waar we gebruik van kunnen leren maken.
 Dat vormt een solide basis met stevige fundamenten, van waaruit jij ten volle in jouw kracht kan staan, jouw leven ontdekken!
 
-De wereld en de mens heeft nood aan meer diepgang, meer bewustzijn. We leven in een wegwerpcultuur, in een virtuele wereld op tablet, smartphone, games,... De mens vervreemt van zijn eigen natuur. Veel mensen beginnen te merken dat het zo niet meer klopt. Maar wat mankeert er dan? Het Ankher wil met cursussen en workshops meer inzicht brengen, en het besef wakker maken dat ieder mens beschikt over een enorme bron aan innerlijke intelligentie, intuïtie, zelfhelend vermogen, bewustzijn. Dat helpt om een leven te leiden dat 'zin' heeft, dat je vervult met een wezenlijk goed gevoel.   
+De wereld en de mens heeft nood aan meer diepgang, meer bewustzijn. We leven in een wegwerpcultuur, in een virtuele wereld op tablet, smartphone, games,... De mens vervreemt van zijn eigen natuur. Veel mensen beginnen te merken dat het zo niet meer klopt. Maar wat mankeert er dan? Het Ankher wil meer inzicht helpen brengen, en het besef wakker maken dat ieder mens beschikt over een enorme bron aan innerlijke intelligentie, energie, intuïtie, zelfhelend vermogen, bewustzijn. Dat helpt om een leven te leiden dat 'zin' heeft, dat je vervult met een wezenlijk goed gevoel.   
 
-Bij het Ankher kan je terecht voor persoonlijke begeleiding, opleidingen, workshops, readings/healings,...
+Bij het Ankher kan je terecht voor persoonlijke begeleiding, opleidingen, workshops, readings/healings,...   
 
+Dat gebeurt vooral via de insteek van "oude wijsheden" uit het Oosten:    
+* Shiatsu: Japanse traditionele lichaamsbehandeling,    
+* de Oosterse 5-elementen-leer (Water, Hout, Vuur, Aarde, Metaal): verkennen hoe alles aan elkaar gekoppeld is en alles elkaar beinvloedt op lichamelijk, emotioneel, spiritueel vlak, ja zelfs qua voeding   
+* Mindfulness: leren leven in het Nu,    
+* Meditatie: leren verkennen wat er in je hoofd allemaal aan automatische processen aan de gang is die je balans verstoren
+* Reiki: oud Japanse healing methode om energie blokkades te detecteren en te helpen verzachten door inzicht te brengen.
 
+Ook oude traditionele Indiaanse methoden worden toegepast, vanuit de sjamanistische inspiratie.
 
 
 
@@ -58,7 +65,7 @@ Ik ben heel blij met deze gang van zaken; het liep zoals het moest lopen, voor m
 
 
 # Missie  
-Het Ankher is een plek waar intuïtie, zelfontwikkeling, groei naar dieper bewustzijn centraal staan. Het wil een tegengewicht bieden aan de huidige maatschappij cultuur waar veelal het accent ligt op mentale processen. Het 'ego', het rationeel denken slaat in onze westerse wereld door in proportie, terwijl het 'aanvoelen', het 'buikgevoel' wordt weggelachen. Het Ankher wil je blik helpen verruimen; want alleen met het hoofd werken en alles beredeneren en rationaliseren, is op zijn minst maar 1/3 van onze capaciteiten als mens. Er is veel meer dat zin geeft aan het leven. Dat kan je hier ontdekken!
+Het Ankher is een plek waar intuïtie, zelfontwikkeling, groei naar dieper bewustzijn centraal staan. Het wil een tegengewicht bieden aan de huidige maatschappij-cultuur waar vooral het accent ligt op mentale processen. Het 'ego', het rationeel denken slaat in onze westerse wereld door in proportie, terwijl het 'aanvoelen', het 'buikgevoel' wordt weggelachen. Het Ankher wil je blik helpen verruimen; want alleen met het hoofd werken en alles beredeneren en rationaliseren, is op zijn minst maar 1/3 van onze capaciteiten als mens. Er is veel meer dat zin geeft aan het leven. Dat kan je hier ontdekken!
 
 
 
@@ -67,22 +74,15 @@ Het Ankher is een plek waar intuïtie, zelfontwikkeling, groei naar dieper bewus
 
 # Voor wie kan het Ankher iets betekenen?
 
-+ voor mensen die merken dat ze een 'gave' hebben maar daar verder niets over weten en het willen verkennen
-+ voor mensen die goed kunnen aanvoelen
-+ hoogsensitieve mensen (HSP)
-+ voor vrouwen die door omstandigheden (werk of privé) zeer mentaal geworden zijn, en terug connectie willen maken met hun aangeboren intuïtie en aanvoelen.
-+ voor mensen die graag meer te weten komen over intuïtie, heldervoelen, helderweten, helderhoren, helderzien
 + voor mensen op zoek naar diepgang, die intuïtief weten dat er meer is, en daarin begeleiding zoeken
++ voor mensen die beter willen leren (aan)voelen
++ voor mensen die diepere connectie met hun lichaam willen maken, de signalen van het lichaam beter willen begrijpen, kortom groeien in lichaamsbewustzijn
++ hoogsensitieve mensen (HSP)
++ voor mensen die graag meer te weten komen over heldervoelen, helderweten, helderhoren, helderzien, ...
++ voor mensen die meer geïnspireerd willen leven en ontdekken waar hun kracht ligt
++ voor mensen die meer met energie willen leren werken
 
 
 
-
-
----  
-
-
-Volg ons op [**Facebook**](https://www.facebook.com/intuitieschool) voor het laatste nieuws!
-
----
 
 
