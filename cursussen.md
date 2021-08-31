@@ -4,7 +4,7 @@ menu: cursussen
 ---
 # Cursussen
 
-**Op ontdekking naar jezelf, in 3 stappen**       
+**OP ONTDEKKING NAAR JEZELF, IN 3 STAPPEN**       
 
 Deze cursus bestaat uit 3 delen: HOOFD, HART, HARA.
 Je komt pas tot het herkennen van de stem van je intuïtie, als je aangeleerd hebt dat er daarnaast nog 2 stemmen zijn die je het knap lastig kunnen maken: die van je hoofd (ego) en die van het hart (emo).   
@@ -22,7 +22,7 @@ Telkens met een theoretisch en praktisch gedeelte.
 Deze 10 lessen vormen 1 geheel. Het wordt aangeraden ze allemaal te volgen, want de inhoud bouwt telkens verder.   
 Als je eens niet kan volgen, kan je die les apart later inpikken wanneer de serie herhaald wordt.   
 
-Start opnieuw op 9 september 2020, elke woensdagavond 18:45u-19:45u, behalve tijdens schoolvakanties. 
+Start opnieuw op 30 september 2021, elke donderdagavond 18:45u-19:45u, behalve tijdens schoolvakanties. 
 Je kan kiezen om de lessen life of online te volgen.   
 10€ per les./ 100€ voor het deel van 10 lessen.    
 
@@ -37,7 +37,7 @@ Telkens met een theoretisch en praktisch gedeelte.
 Deze 10 lessen vormen 1 geheel. Het wordt aangeraden ze allemaal te volgen, want de inhoud bouwt telkens verder.   
 Als je eens niet kan volgen, kan je die les apart later inpikken wanneer de serie herhaald wordt.   
 
-Start opnieuw op 9 december 2020, elke woendagavond 18:45u-19:45u, behalve tijdens schoolvakanties.  
+Start opnieuw in januari 2022, elke donderdagavond 18:45u-19:45u, behalve tijdens schoolvakanties.  
 Je kan kiezen om de lessen life of online te volgen.   
 10€ per les./ 100€ voor het deel van 10 lessen.      
 
@@ -53,7 +53,7 @@ Telkens met een theoretisch en praktisch gedeelte.
 Deze 10 lessen vormen 1 geheel. Het wordt aangeraden ze allemaal te volgen, want de inhoud bouwt telkens verder.   
 Als je eens niet kan volgen, kan je die les apart later inpikken wanneer de serie herhaald wordt.   
 
-Start opnieuw op 17 maart 2021, elke woensdagavond 18:45u-19:45u, behalve tijdens schoolvakanties. 
+Start opnieuw rond Pasen 2022, elke donderdagavond 18:45u-19:45u, behalve tijdens schoolvakanties. 
 Je kan kiezen om de lessen life of online te volgen.   
 10€ per les./ 100€ voor het deel van 10 lessen.
 
@@ -63,23 +63,29 @@ Je kan kiezen om de lessen life of online te volgen.
 
 ---
 
-**REIKI 1 OPLEIDING & INWIJDINGEN**
-
-Je weet wat Reiki is, en je wil de stap zetten in je eigen lichamelijke, geestelijke en spirituele ontwikkeling. 
-Indien je nog niet precies weet wat Reiki is, volg je best eerst een infosessie. Die worden regelmatig gegeven, check de data op Facebook! Of je boekt een Reiki healing om gewaar te worden wat het met je doet.      
+**5 ELEMENTEN YOGA en QIGONG**
 
 
+---
+
+
+**REIKI OPLEIDINGEN & INWIJDINGEN**
+
+Voor wie Reiki nog niet kent, wordt er op aanvraag een infosessie voorzien. Stuur gerust een [**mailtje**](mailto:marian@de-intuitieschool.be)! 
+
+Als je weet wat Reiki is, en je wil de stap zetten in je eigen lichamelijke, geestelijke en spirituele ontwikkeling, dan start je met Reiki 1. 
+Eens je ingestapt bent, kan je volgens het natuurlijke verloop van je eigen ontwikkeling, verder door naar Reiki 2, Reiki 3 en Reiki Master.
+     
 Reiki is het mooiste cadeau dat je jezelf kan schenken als EHBO-zelfhulp en aan je dierbaren. Je leert spelenderwijs wat energie voor jou kan doen, je leert hoe het zelfgenezend vermogen van je lichaam werkt, je begrijpt beter waarom je bepaalde obstakels tegenkomt en je gaat er vlotter doorheen!   
 Het verruimt je blik op alles wat er mogelijks rondom jou speelt, het verdiept je leven en inzicht.   
 
 
-De opleiding, inwijdingen en oefeningen duren een hele dag, van 10u tot 18u circa. Na deze dag verkrijg je het certificaat van Reiki 1. 
+De opleiding, inwijdingen en oefeningen duren per graad een hele dag, van 10u tot 18u circa. Na deze dag verkrijg je het certificaat. 
 
-Kostprijs:    
-150€ (syllabus, lunch, thee en versnaperingen, opleiding, inwijding, oefeningen)
-
-Eerstkomende data:
-vrijdag 14 augustus 2020
+Kostprijs omvat syllabus, lunch, thee en versnaperingen, opleiding, inwijding, oefeningen.
+Reiki 1: 150€ 
+Reiki 2: 150€ 
+Reiki 3 of Master: op aanvraag
 
 [**Ik schrijf me in!**](mailto:marian@de-intuitieschool.be) 
 
@@ -98,20 +104,12 @@ Je leert hoe alles verbonden is, hoe elk deel met het andere samenwerkt. Het zij
 
 De cursus baseert zich op de inzichten uit de Oosterse 5 elementen-leer en principes ervan binnen Shiatsu.
 
-Ik bied de cursus enerzijds face2face aan, dat wil zeggen life in de praktijkruimte in Wetteren;       
-Anderzijds, voor wie liever online volgt, is er de gelijklopende online cursus, waar wel iets minder diep op alles zal ingegaan worden om de schermtijd te beperken en de aandacht levendig te houden.
+De lessen zijn een boeiende mix tussen theorie en praktijkoefeningen. De inhoud gaat veel verder dan de oefeningen die je leert in de 5 elementen Yoga & Qigong cursus. Het is een integratie van de kracht van de 5 elementen op niveau van het lichaam, de emoties, de zielskwaliteiten en voeding.
 
-De lessen zijn een boeiende mix tussen theorie en praktijkoefeningen, om zeer goed in het lichaam te leren voelen. 
-
-offline: 6 zaterdagen 10u-16u; start vanaf september 2020; 1 zaterdag per maand: 26/9, 24/10, 21/11, 12/12, 23/1/21, 20/2/21; 870 euro voor het pakket van 6 zaterdagen; 150 euro per losse lesdag.
-
-online: 12 maandagavonden 19u-21u; start vanaf 7 september 2020; elke 2 weken; 690 euro voor het pakket van 12 lessen; 60 euro per losse les van 2 uur. Data: 7/9, 21/9, 5/10, 19/10, 9/11, 23/11, 7/12, 21/12, 11/1/21, 25/1/21, 8/2/21, 22/2/21
-
-Early bird promotie: wie inschrijft voor het hele traject, dus de 6 zaterdagen of de 12 maandagavonden, geniet tot en met 1 september middernacht van een fabuleuze korting van 70€!!! Voor wie zijn gezondheid serieus neemt, en goed gewapend de winter wil doorkomen!
 
 ___
 
 
-[**Ik schrijf me in!**](mailto:marian@de-intuitieschool.be) Laat me weten welke cursus je precies interesseert, en ik contacteer je voor meer details, link voor webinars, etc! 
+[**Ik schrijf me in!**](mailto:marian@de-intuitieschool.be) 
 
 
