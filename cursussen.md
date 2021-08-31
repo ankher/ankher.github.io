@@ -107,8 +107,6 @@ De cursus baseert zich op de inzichten uit de Oosterse 5 elementen-leer en princ
 De lessen zijn een boeiende mix tussen theorie en praktijkoefeningen. De inhoud gaat veel verder dan de oefeningen die je leert in de 5 elementen Yoga & Qigong cursus. Het is een integratie van de kracht van de 5 elementen op niveau van het lichaam, de emoties, de zielskwaliteiten en voeding.
 
 
-___
-
 
 [**Ik schrijf me in!**](mailto:marian@de-intuitieschool.be) 
 
