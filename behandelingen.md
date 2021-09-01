@@ -1,8 +1,8 @@
 ---
 layout: markdown
-menu: readinghealing
+menu: behandelingen
 ---
-# Reading & Healing
+# Behandelingen
 
 Bij wijze van persoonlijk consult, kan je ook kiezen voor een reading of healing.
 
